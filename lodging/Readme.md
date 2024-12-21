@@ -6,6 +6,7 @@
 
 - [Chalet Carmen Coyoacán](https://www.chaletdelcarmen.com/en/)
 - Carmen room has a king (rey) bed, and another room has 2 beds
+- This place gets great reviews on trip advisor, really sweet spot.
 
 ##### More than $100
 
