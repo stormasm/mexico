@@ -10,9 +10,13 @@ Hoy caminamos hasta el Parque México. Tuvimos almuerzo a restaurant con el nomb
 Hoy fue nuestro primera vez sobre el metro.  Fuimos a coyoacán y tuvimos un muy lindo almuerzo a el Cactus restaurante.  We arrived at the Coyoacán stop and had to cross underneath a big highway so on the way home we got on at Viveros Direchos Humanos.  We had rice bowls for dinner at the Sushi place down the street from our hotel.
 
 ##### Monday 13
-Tuvimos el cena a El Burro Hermoso y fue nuestra primera vez comiendo carne en su jugo.  Earlier in the day we had a nice lunch at Guana.  
+Tuvimos el cena a El Burro Hermoso y fue nuestra primera vez comiendo carne en su jugo.  Earlier in the day we had a nice lunch at Guana.  Fue primera vez comimos a Guana.
 
 ##### Tuesday January 14, 2025
 Hoy comimos dos comidas a Guana.
 Por almuerzo comimos chilaquiles con plantains y tuvimos 4 tortillas al lado.
 Luego caminamos a Museo Nacional de Antropología.
+Después recorrimos todo el museo y llegamos de nuevo al Reforma.
+Cruzamos la calle y empezamos a caminar de vuelta hacia el gran edificio del BBVA.
+Nosotras volvimos a guana y comimos [sope](https://en.wikipedia.org/wiki/Sope_(food)) por primera vez.
+De camino a casa compramos unos plátanos y churros.
