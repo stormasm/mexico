@@ -1,6 +1,6 @@
 
 
-##### Friday 10
+##### Friday January 10, 2025
 Nos despertamos temprano en la mañana.  Primera luz de la mañana en la ciudad de mexico es alrededor de las 6:30am.  Nos relajamos y entonces fuimos a caminar.  Comimos en el Bondi Café y hablamos con un hombre de Cholula.  En la tarde comimos a la restaurante de tacos sobre rio lerma.  Afterwards we went to change some money for the first time and listened to some mariachi music at the restaurant next to where we had lunch before heading back home on rio lerma.
 
 ##### Saturday 11
@@ -13,7 +13,6 @@ Hoy fue nuestro primera vez sobre el metro.  Fuimos a coyoacán y tuvimos un muy
 Tuvimos el cena a El Burro Hermoso y fue nuestra primera vez comiendo carne en su jugo.  Earlier in the day we had a nice lunch at Guana.  
 
 ##### Tuesday January 14, 2025
-
 Hoy comimos dos comidas a Guana.
 Por almuerzo comimos chilaquiles con plantains y tuvimos 4 tortillas al lado.
 Luego caminamos a Museo Nacional de Antropología.
