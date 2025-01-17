@@ -20,3 +20,14 @@ Después recorrimos todo el museo y llegamos de nuevo al Reforma.
 Cruzamos la calle y empezamos a caminar de vuelta hacia el gran edificio del BBVA.
 Nosotras volvimos a guana y comimos [sope](https://en.wikipedia.org/wiki/Sope_(food)) por primera vez.
 De camino a casa compramos unos plátanos y churros.
+
+##### Thursday January 16, 2025
+Lo primero que hice por la mañana estaba hablar con Alejandro sobre
+mi tarifa de hotel para el próximo mes más o menos.
+Tuvimos desayuno a Guana cafe.
+Después caminamos a el metro bus estacion Hamburgo sobre Insurgentes Sur.
+Fue nuestra primera vez viajando en el Metro Bus.
+Bajamos del metrobus en la estacion napoles.
+Caminamos a el zapata metro estacion.
+A lo largo del camino comimos tacos callejeros.
+Por la tarde comimos a muy linda ensalada sobre reforma
