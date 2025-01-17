@@ -22,7 +22,7 @@ Nosotras volvimos a guana y comimos [sope](https://en.wikipedia.org/wiki/Sope_(f
 De camino a casa compramos unos plátanos y churros.
 
 ##### Thursday January 16, 2025
-Lo primero que hice por la mañana estaba hablar con Alejandro sobre
+Lo primero que hice por la mañana fue hablar con Alejandro sobre
 mi tarifa de hotel para el próximo mes más o menos.
 Tuvimos desayuno a Guana cafe.
 Después caminamos a el metro bus estacion Hamburgo sobre Insurgentes Sur.
