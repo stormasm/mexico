@@ -31,3 +31,11 @@ Bajamos del metrobus en la estacion napoles.
 Caminamos a el zapata metro estacion.
 A lo largo del camino comimos tacos callejeros.
 Por la tarde comimos a muy linda ensalada sobre reforma
+
+##### Friday January 17, 2025
+Tuvimos un buen almuerzo cerca de James Sullivan.
+Fue nuestro primera vez en Mexico comiendo mole.
+Despues almuerzo caminamos a el calle Av Ribera de San Cosme.
+Cada dia compramos bananas a la mercado
+Hoy no fue diferente.
+En la noche fuimos a Lalo Tacos y tuvimos sopa de tortilla.
