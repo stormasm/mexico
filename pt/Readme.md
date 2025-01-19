@@ -39,3 +39,8 @@ Despues almuerzo caminamos a el calle Av Ribera de San Cosme.
 Cada dia compramos bananas a la mercado
 Hoy no fue diferente.
 En la noche fuimos a Lalo Tacos y tuvimos sopa de tortilla.
+
+##### Saturday January 18, 2025
+Después de un buen desayuno en Guana, caminamos por primera vez por el borde de Polanca.
+Regresamos a casa y llamos pedro por el primera vez.
+A última hora de la tarde cenamos en el restaurante Bengali.
