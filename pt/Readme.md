@@ -46,8 +46,8 @@ Regresamos a casa y llamos pedro por el primera vez.
 A última hora de la tarde cenamos en el restaurante Bengali.
 
 ##### Sunday January 19, 2025
-fuimos a Palacio de Bellas Artes hoy.
+fuimos a [Palacio de Bellas Artes](https://museopalaciodebellasartes.inba.gob.mx/permanent-collection-of-murals/) hoy.
 Tuvimos un buen caminando y un buen desayuno.
 Hicimos un lindo paseo y desayunamos bien en el camino a museum.
 el murals por diego rivera, José Clemente Orozco, y David Alfaro Siqueiros estuvimos fantastico.
-Caminamos hasta la estación de metro Balderas y luego a casa.
+Caminamos hasta la estación de metro Balderas y luego a casa
