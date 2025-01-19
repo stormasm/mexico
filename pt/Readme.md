@@ -44,3 +44,10 @@ En la noche fuimos a Lalo Tacos y tuvimos sopa de tortilla.
 Después de un buen desayuno en Guana, caminamos por primera vez por el borde de Polanca.
 Regresamos a casa y llamos pedro por el primera vez.
 A última hora de la tarde cenamos en el restaurante Bengali.
+
+##### Sunday January 19, 2025
+fuimos a Palacio de Bellas Artes hoy.
+Tuvimos un buen caminando y un buen desayuno.
+Hicimos un lindo paseo y desayunamos bien en el camino a museum.
+el murals por diego rivera, José Clemente Orozco, y David Alfaro Siqueiros estuvimos fantastico.
+Caminamos hasta la estación de metro Balderas y luego a casa.
