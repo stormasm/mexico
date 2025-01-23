@@ -13,3 +13,4 @@ With the temporary visa then you can open a bank account.
 
 
 - [permanent resident](https://consulmex.sre.gob.mx/houston/index.php/visas/visas/18-visas/91-requirements-permanent-resident-visa-retired)
+- [list of mexican consulates](https://www.gob.mx/sre/documentos/list-of-mexican-consulates-in-the-united-states?idiom=en)
