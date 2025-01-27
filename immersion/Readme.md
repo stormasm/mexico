@@ -10,8 +10,11 @@
 
 ### Trip Advisor Reviews
 
-
 - [oaxaca: spanish immersion school](https://www.tripadvisor.com/ShowUserReviews-g150801-d10071122-r937782210-Spanish_Immersion_School-Oaxaca_Southern_Mexico.html#REVIEWS)
 - [oaxaca: spanish immersion school](https://www.tripadvisor.com/Attraction_Review-g150801-d10071122-Reviews-Spanish_Immersion_School-Oaxaca_Southern_Mexico.html)
 - [oaxaca: Excellent - Spanish/English Intercambio Saturdays at 10am!](https://www.tripadvisor.com/ShowUserReviews-g150801-d1956140-r937782740-Oaxaca_Lending_Library-Oaxaca_Southern_Mexico.html)
 - [oaxaca: spanish immersion school review](https://www.tripadvisor.com/ShowUserReviews-g150801-d10071122-r937782210-Spanish_Immersion_School-Oaxaca_Southern_Mexico.html)
+
+### Mexico Different Places
+
+- [List of schools in Mexico](https://www.languagecourse.net/schools--mexico.php3)
