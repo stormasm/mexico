@@ -68,8 +68,69 @@ Ahora faltaban apenas cuatro días para llegar nuevamente a la misma aldea. Esta
 —No importa —dijo el muchacho a sus ovejas—. Yo también conozco a otras chicas en otras ciudades.
 Pero en el fondo de su corazón, sabía que sí importaba. Y que tanto los pastores, como los marineros, como los viajantes de comercio siempre conocían una ciudad donde había alguien capaz de hacerles olvidar la alegría de viajar libres por el mundo.
 Comenzó a rayar el día y el pastor colocó a las ovejas en dirección al sol. «Ellas nunca necesitan tomar una decisión —pensó—. Quizá por eso permanecen siempre tan cerca de mí». La única necesidad que las ovejas sentían era la del agua y la de la
-ebookelo.com
 
 #### Página 13
 
 comida. Mientras el muchacho conociese los mejores pastos de Andalucía, ellas continuarían siendo sus amigas. Aunque los días fueran todos iguales, con largas horas arrastrándose entre el nacimiento y la puesta del sol; aunque jamás hubieran leído un solo libro en sus cortas vidas y no conocieran la lengua de los hombres que contaban las novedades en las aldeas, ellas estaban contentas con su alimento, y eso bastaba. A cambio, ofrecían generosamente su lana, su compañía y —de vez en cuando— su carne.
+
+«Si hoy me volviera un monstruo y decidiese matarlas, una por una, ellas sólo se darían cuenta cuando casi todo el rebaño hubiese sido exterminado —pensó el muchacho—. Porque confían en mí y se olvidaron de confiar en su propio instinto. Sólo porque las llevo hasta el agua y la comida».
+
+El muchacho comenzó a extrañarse de sus propios pensamientos. Quizá la iglesia, con aquel sicómoro creciendo dentro, estuviese embrujada. Había hecho que soñase el mismo sueño por segunda vez, y le estaba provocando una sensación de rabia contra sus compañeras, siempre tan fieles. Bebió un nuevo trago del vino que le había sobrado de la cena la noche anterior y apretó contra el cuerpo su chaqueta. Sabía que dentro de unas horas, con el sol alto, el calor sería tan fuerte que no podría conducir a las ovejas por el campo. Era la hora en que toda España dormía en verano. El calor se prolongaba hasta la noche y durante todo ese tiempo él tenía que cargar con la chaqueta. No obstante, cuando pensaba en quejarse de su peso, siempre se acordaba de que gracias a ella no había sentido frío por la mañana.
+
+«Tenemos que estar siempre preparados para las sorpresas del tiempo», pensaba entonces, y se sentía agradecido por el peso de la chaqueta.
+
+La chaqueta tenía una finalidad, y el muchacho también. En dos años de recorrido por las planicies de Andalucía ya se conocía de memoria todas las ciudades de la región, y ésta era la gran razón de su vida: viajar. Estaba pensando en explicar esta vez a la chica por qué un simple pastor sabe leer: había estado hasta los dieciséis años en un seminario. Sus padres querían que él fuese cura, motivo de orgullo para una simple familia campesina que apenas trabajaba para conseguir comida y agua, como sus ovejas. Estudió latín, español y teología. Pero desde niño soñaba con conocer el mundo, y esto era mucho más importante que conocer a Dios y los pecados de los hombres. Cierta tarde, al visitar a su familia, se había armado de valor y le había dicho a su padre que no quería ser cura. Quería viajar.
+
+—Hombres de todo el mundo ya pasaron por esta aldea, hijo —dijo su padre—. Vienen en busca de cosas nuevas, pero continúan siendo las mismas personas. Van hasta la colina para conocer el castillo y opinan que el pasado era mejor que el presente. Pueden tener los cabellos rubios o la piel oscura, pero son iguales que los hombres de nuestra aldea.
+
+—Pero yo no conozco los castillos de las tierras de donde ellos vienen —replicó
+
+#### Página 14
+
+el muchacho.
+
+—Ésos hombres, cuando conocen nuestros campos y nuestras mujeres, dicen que
+les gustaría vivir siempre aquí —continuó el padre.
+
+—Quiero conocer a las mujeres y las tierras de donde ellos vinieron —dijo el
+chico—, porque ellos nunca se quedan por aquí.
+
+—Los hombres traen el bolsillo lleno de dinero —insistió el padre—. Entre
+nosotros, sólo los pastores viajan.
+
+—Entonces seré pastor.
+
+El padre no dijo nada más. Al día siguiente le dio una bolsa con tres antiguas
+monedas de oro españolas.
+
+—Las encontré un día en el campo. Iban a ser tu dote para la Iglesia. Compra tu
+rebaño y recorre el mundo hasta que aprendas que nuestro castillo es el más importante y que nuestras mujeres son las más bellas.
+Y lo bendijo. En los ojos del padre él leyó también el deseo de recorrer el mundo. Un deseo que aún persistía, a pesar de las decenas de años que había intentado sepultarlo con agua, comida, y el mismo lugar para dormir todas las noches.
+El horizonte se tiñó de rojo, y después apareció el sol. El muchacho recordó la conversación con el padre y se sintió alegre; ya había conocido muchos castillos y a muchas mujeres (aunque ninguna como aquella que lo esperaba dentro de dos días). Tenía una chaqueta, un libro que podía cambiar por otro y un rebaño de ovejas. Lo más importante, sin embargo, era que cada día realizaba el gran sueño de su vida: viajar. Cuando se cansara de los campos de Andalucía podía vender sus ovejas y hacerse marinero. Cuando se cansara del mar ya habría conocido muchas ciudades, a muchas mujeres y muchas oportunidades de ser feliz.
+
+«No entiendo cómo buscan a Dios en el seminario», pensó mientras miraba el sol que nacía. Siempre que le era posible buscaba un camino diferente para recorrer. Nunca había estado en aquella iglesia antes, a pesar de haber pasado tantas veces por allí. El mundo era grande e inagotable, y si él dejara que las ovejas le guiaran apenas un poquito, iba a terminar descubriendo más cosas interesantes. «El problema es que ellas no se dan cuenta de que están haciendo caminos nuevos cada día. No perciben que los pastos cambian, que las estaciones son diferentes, porque sólo están preocupadas por el agua y la comida. Quizá suceda lo mismo con todos nosotros — pensó el pastor—. Hasta conmigo, que no pienso en otras mujeres desde que conocí a la hija del comerciante».
+
+Miró al cielo y calculó que llegaría a Tarifa antes de la hora del almuerzo. Allí podría cambiar su libro por otro más voluminoso, llenar la bota de vino y afeitarse y cortarse el pelo; tenía que estar bien para su encuentro con la chica y no quería pensar en la posibilidad de que otro pastor hubiera llegado antes que él, con más ovejas, para pedir su mano.
+
+##### Pagina 15
+
+«Es justamente la posibilidad de realizar un sueño lo que hace que la vida sea interesante», reflexionó mientras miraba de nuevo el cielo y apretaba el paso. Acababa de acordarse de que en Tarifa vivía una vieja capaz de interpretar los sueños. Y él había tenido un sueño repetido aquella noche.
+
+La vieja condujo al muchacho hasta un cuarto en el fondo de la casa, separado de la sala por una cortina hecha con tiras de plástico de varios colores. Dentro había una mesa, una imagen del Sagrado Corazón de Jesús y dos sillas.
+La vieja se sentó y le pidió a él que hiciese lo mismo. Después le cogió ambas manos y empezó a rezar en voz baja.
+Parecía un rezo gitano. El muchacho ya había encontrado a muchos gitanos por el camino; los gitanos viajaban y, sin embargo, no cuidaban ovejas. La gente decía que su vida se basaba en engañar a los demás; también decían que tenían un pacto con los demonios, y que raptaban criaturas para tenerlas como esclavas en sus misteriosos campamentos. De pequeño siempre había tenido mucho miedo de que lo raptaran los gitanos, y ese temor antiguo revivió mientras la vieja le sujetaba las manos.
+«Pero tiene la imagen del Sagrado Corazón de Jesús», pensó procurando calmarse. No quería que sus manos empezaran a temblar y la vieja percibiese su miedo. Rezó un padrenuestro en silencio.
+
+—Qué interesante —dijo la vieja sin apartar los ojos de la mano del muchacho. Y volvió a guardar silencio.
+El chico se estaba poniendo nervioso. Sin poder impedirlo, sus manos empezaron a temblar, y la vieja se dio cuenta. Él las retiró rápidamente.
+
+—No he venido aquí para que me lean las manos —dijo, ya arrepentido de haber entrado en aquella casa.
+Pensó por un momento que era mejor pagar la consulta e irse de allí sin saber nada. Le estaba dando demasiada importancia a un sueño repetido.
+
+—Tú has venido a saber de sueños —respondió la vieja—. Y los sueños son el lenguaje de Dios. Cuando Él habla el lenguaje del mundo, yo puedo interpretarlo. Pero si habla el lenguaje de tu alma, sólo tú podrás entenderlo. Y yo te voy a cobrar la consulta de cualquier manera.
+
+«Otro truco», pensó el muchacho. Sin embargo, decidió arriesgarse. Un pastor corre siempre el riesgo de los lobos o de la sequía, y eso es lo que hace que el oficio de pastor sea más excitante.
+
+—Tuve el mismo sueño dos veces seguidas —explicó—. Soñé que estaba en un prado con mis ovejas cuando aparecía un niño y empezaba a jugar con los animales. No me gusta que molesten a mis ovejas, porque se asustan de los extraños. Pero los niños siempre consiguen tocar a los animales sin que ellos se asusten. No sé por qué. No sé cómo pueden saber los animales la edad de los seres humanos.
+
+—Vuelve a tu sueño —ordenó la vieja—. Tengo una olla en el fuego. Además,

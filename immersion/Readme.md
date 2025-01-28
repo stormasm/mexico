@@ -2,7 +2,7 @@
 ### Mexico City
 
 - [map of all of the schools](https://www.google.com/maps/search/spanish+immersion+schools+in+mexico+city/@19.4214668,-99.1767455,15z?entry=ttu&g_ep=EgoyMDI1MDEyMi4wIKXMDSoASAFQAw%3D%3D)
-
+- [blog about spanish language schools cdmx](https://spanishwithdominique.com/blog/the-ultimate-guide-to-spanish-language-schools-in-mexico-city)
 
 ### Spanish Immersion Programs in Oaxaca
 
