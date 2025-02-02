@@ -134,3 +134,157 @@ Pensó por un momento que era mejor pagar la consulta e irse de allí sin saber 
 —Tuve el mismo sueño dos veces seguidas —explicó—. Soñé que estaba en un prado con mis ovejas cuando aparecía un niño y empezaba a jugar con los animales. No me gusta que molesten a mis ovejas, porque se asustan de los extraños. Pero los niños siempre consiguen tocar a los animales sin que ellos se asusten. No sé por qué. No sé cómo pueden saber los animales la edad de los seres humanos.
 
 —Vuelve a tu sueño —ordenó la vieja—. Tengo una olla en el fuego. Además,
+
+##### Pagina 16
+
+tienes poco dinero y no puedes comprar todo mi tiempo.
+
+—El niño seguía jugando con las ovejas durante algún tiempo —continuó el
+muchacho, un poco presionado— y de repente me cogía de la mano y me llevaba hasta las Pirámides de Egipto.
+El chico esperó un poco para ver si la vieja sabía lo que eran las Pirámides de Egipto. Pero la vieja continuó callada.
+—Entonces, en las Pirámides de Egipto —pronunció las tres últimas palabras lentamente, para que la vieja pudiera entender bien—, el niño me decía: « Si vienes hasta aquí encontrarás un tesoro escondido». Y cuando iba a mostrarme el lugar exacto, me desperté. Las dos veces.
+
+La vieja continuó en silencio durante algún tiempo. Después volvió a coger las manos del muchacho y a estudiarlas atentamente.
+—No voy a cobrarte nada ahora —dijo la vieja—. Pero quiero una décima parte del tesoro si lo encuentras.
+
+El muchacho rio feliz. ¡Iba a ahorrarse el poco dinero que tenía gracias a un sueño que hablaba de tesoros escondidos! La vieja debía de ser realmente gitana, porque los gitanos tenían fama de ser un poco tontos.
+—Entonces interprete el sueño —le pidió.
+
+—Antes, jura. Júrame que me vas a dar la décima parte de tu tesoro a cambio de lo que voy a decirte.
+
+El chico juró. La vieja le pidió que repitiera el juramento mirando la imagen del Sagrado Corazón de Jesús.
+
+—Es un sueño del Lenguaje del Mundo —dijo ella—. Puedo interpretarlo, aunque es una interpretación muy difícil. Por eso creo que merezco mi parte en tu hallazgo. He aquí la interpretación: tienes que ir hasta las Pirámides de Egipto. Nunca oí hablar de ellas, pero si fue un niño el que te las mostró es porque existen. Allí encontrarás un tesoro que te hará rico.
+El muchacho se quedó sorprendido y después irritado. No necesitaba haber buscado a la vieja para esto. Finalmente recordó que no iba a pagar nada.
+
+—Para esto no necesitaba haber perdido mi tiempo —dijo. —Por eso te dije que tu sueño era difícil. Las cosas simples son las más extraordinarias, y sólo los sabios consiguen verlas. Puesto que yo no soy sabia, tengo que conocer otras artes, como la lectura de las manos.
+
+—¿Y cómo voy a llegar hasta Egipto?
+
+—Yo sólo interpreto sueños. No sé transformarlos en realidad. Por eso tengo que vivir de lo que mis hijas me dan.
+
+—¿Y si no llego hasta Egipto?
+
+—Me quedo sin cobrar. No sería la primera vez.
+
+Y la vieja no dijo nada más. Le pidió al muchacho que se fuera, porque ya había
+
+##### Pagina 17
+
+perdido mucho tiempo con él.
+
+El muchacho salió decepcionado y convencido de que no creería nunca más en
+sueños. Se acordó de que tenía varias cosas que hacer: fue al colmado a comprar algo de comida, cambió su libro por otro más grueso y se sentó en un banco de la plaza para saborear el nuevo vino que había comprado. Era un día caluroso y el vino, por uno de estos misterios insondables, conseguía refrescar un poco su cuerpo. Las ovejas estaban a la entrada de la ciudad, en el establo de un nuevo amigo suyo. Conocía a mucha gente por aquellas zonas, y por eso le gustaba viajar. Uno siempre acaba haciendo amigos nuevos y no es necesario quedarse con ellos día tras día. Cuando vemos siempre a las mismas personas (y esto pasaba en el seminario) terminamos haciendo que pasen a formar parte de nuestras vidas. Y como ellas forman parte de nuestras vidas, pasan también a querer modificar nuestras vidas. Y si no somos como ellas esperan que seamos, se molestan. Porque todas las personas saben exactamente cómo debemos vivir nuestra vida.
+
+Y nunca tienen idea de cómo deben vivir sus propias vidas. Como la mujer de los sueños, que no sabía transformarlos en realidad.
+Decidió esperar a que el sol estuviera un poco más bajo antes de seguir con sus ovejas en dirección al campo. Dentro de tres días estaría con la hija del comerciante.
+
+Empezó a leer el libro que le había proporcionado el cura de Tarifa. Era un libro voluminoso, que hablaba de un entierro ya desde la primera página. Además, los nombres de los personajes eran complicadísimos. Pensó que si algún día él escribía un libro haría aparecer a los personajes de forma sucesiva, para que los lectores no tuviesen tanto trabajo en recordar nombres.
+
+Cuando consiguió concentrarse un poco en la lectura —y era buena, porque hablaba de un entierro en la nieve, lo que le transmitía una sensación de frío debajo de aquel inmenso sol—, un viejo se sentó a su lado y empezó a buscar conversación.
+
+—¿Qué están haciendo? —preguntó el viejo señalando a las personas en la plaza.
+
+—Están trabajando —repuso el muchacho secamente, y volvió a fingir que estaba concentrado en la lectura. En realidad estaba pensando en esquilar las ovejas delante de la hija del comerciante, para que ella viera que era capaz de hacer cosas interesantes. Ya había imaginado esta escena una infinidad de veces: en todas ellas, la chica quedaba deslumbrada cuando él empezaba a explicarle que las ovejas se deben esquilar desde atrás hacia adelante. También intentaba acordarse de algunas buenas historias para contarle mientras esquilaba las ovejas. Casi todas las historias las había leído en los libros, pero las contaría como si las hubiera vivido personalmente. Ella nunca se daría cuenta porque no sabía leer libros.
+
+El viejo, sin embargo, insistió. Explicó que estaba cansado, con sed, y le pidió un trago de vino. El muchacho le ofreció su botella; quizá así se callaría.
+
+Pero el viejo quería conversación a toda costa. Le preguntó qué libro estaba
+
+##### Pagina 18
+
+leyendo. Él pensó en ser descortés y cambiarse de banco, pero su padre le había enseñado a respetar a los ancianos. Entonces ofreció el libro al viejo por dos razones: la primera, porque no sabía pronunciar el título; y la segunda, porque si el viejo no sabía leer, sería él quien se cambiaría de banco para no sentirse humillado.
+
+—Humm... —dijo el viejo inspeccionando el volumen por todos los costados, como si fuese un objeto extraño—. Es un libro importante, pero muy aburrido.
+
+El muchacho se quedó sorprendido. El viejo sabía leer, y además ya había leído aquel libro. Y si era aburrido, como él decía, aún tendría tiempo de cambiarlo por otro.
+
+—Es un libro que habla de lo que hablan casi todos los libros —continuó el viejo —. De la incapacidad que las personas tienen para escoger su propio destino. Y termina haciendo que todo el mundo crea la mayor mentira del mundo.
+—¿Cuál es la mayor mentira del mundo? —indagó, sorprendido, el muchacho.
+
+—Es ésta: en un determinado momento de nuestra existencia, perdemos el control de nuestras vidas, y éstas pasan a ser gobernadas por el destino. Ésta es la mayor mentira del mundo.
+
+—Conmigo no sucedió tal cosa —replicó el muchacho—. Querían que yo fuese cura, pero yo decidí ser pastor.
+—Así es mejor —dijo el viejo—, porque te gusta viajar.
+
+«Ha adivinado mi pensamiento», reflexionó el chico. El viejo, mientras tanto, hojeaba el grueso libro sin la menor intención de devolvérselo. El muchacho observó que vestía una ropa extraña; parecía un árabe, lo cual no era raro en aquella región. África quedaba a pocas horas de Tarifa; sólo había que cruzar el pequeño estrecho en un barco. Muchas veces aparecían árabes en la ciudad, haciendo compras y rezando oraciones extrañas varias veces al día.
+
+—¿De dónde es usted? —preguntó.
+
+—De muchas partes.
+
+—Nadie puede ser de muchas partes —dijo el muchacho—. Yo soy un pastor y
+estoy en muchas partes, pero soy de un único lugar, de una ciudad cercana a un castillo antiguo. Allí fue donde nací.
+
+—Entonces podemos decir que yo nací en Salem.
+
+El muchacho no sabía dónde estaba Salem, pero no quiso preguntarlo para no sentirse humillado con la propia ignorancia. Permaneció un rato contemplando la plaza. Las personas iban y venían, y parecían muy ocupadas.
+
+—¿Cómo está Salem? —preguntó buscando alguna pista.
+
+—Como siempre.
+
+Esto no era ninguna pista. Pero sabía que Salem no estaba en Andalucía, si no él
+ya la habría conocido.
+
+—¿Y qué hace usted en Salem? —insistió.
+
+##### Pagina 19
+
+Que qué es lo que hago en Salem? —El viejo por primera vez soltó una buena carcajada—. ¡Vamos! ¡Yo soy el rey de Salem!
+La gente dice muchas cosas raras, pensó el muchacho. A veces es mejor estar con las ovejas, que son calladas y se limitan a buscar alimento y agua. O es mejor estar con los libros, que cuentan historias fantásticas siempre en los momentos en que uno quiere oírlas. Pero cuando uno habla con personas, éstas dicen ciertas cosas que nos dejan sin saber cómo continuar la conversación.
+
+—Mi nombre es Melquisedec —dijo el viejo—. ¿Cuántas ovejas tienes?
+
+—Las suficientes —respondió el muchacho. El viejo empezaba a querer saber demasiado sobre su vida.
+
+—Entonces estamos ante un problema. No puedo ayudarte mientras tú consideres que tienes las ovejas suficientes.
+
+El muchacho se irritó. No había pedido ayuda. Era el viejo quien había pedido vino, conversación y el libro.
+—Devuélvame el libro —dijo—. Tengo que ir a buscar mis ovejas y seguir adelante.
+
+—Dame la décima parte de tus ovejas —propuso el viejo—, y yo te enseñaré cómo llegar hasta el tesoro escondido.
+El chico volvió a acordarse entonces del sueño y de repente lo vio todo claro. La vieja no le había cobrado nada pero el viejo —que quizá fuese su marido— iba a conseguir arrancarle mucho más dinero a cambio de una información inexistente. El viejo debía de ser gitano también.
+
+Antes de que el muchacho dijese nada, el viejo se inclinó, cogió una rama y comenzó a escribir en la arena de la plaza. Cuando se inclinaba, algo se vio brillar en su pecho, con una intensidad tal que casi cegó al muchacho. Pero en un movimiento excesivamente rápido para alguien de su edad, volvió a cubrir el brillo con el manto. Los ojos del muchacho recobraron su normalidad y pudo ver lo que el viejo estaba escribiendo.
+
+En la arena de la plaza principal de aquella pequeña ciudad, leyó el nombre de su padre y de su madre. Leyó la historia de su vida hasta aquel momento, los juegos de su infancia, las noches frías del seminario. Leyó el nombre de la hija del comerciante, que ignoraba. Leyó cosas que jamás había contado a nadie, como el día en que robó el arma de su padre para matar venados, o su primera y solitaria experiencia sexual.
+
+«Soy el rey de Salem», había dicho el viejo.
+
+—¿Por qué un rey conversa con un pastor? —preguntó el muchacho, avergonzado y admiradísimo.
+
+—Existen varias razones. Pero la más importante es que tú has sido capaz de cumplir tu Leyenda Personal.
+El muchacho no sabía qué era eso de la Leyenda Personal.
+
+##### Pagina 20
+
+Es aquello que siempre deseaste hacer. Todas las personas, al comienzo de su juventud, saben cuál es su Leyenda Personal. En ese momento de la vida todo se ve claro, todo es posible, y ellas no tienen miedo de soñar y desear todo aquello que les gustaría hacer en sus vidas. No obstante, a medida que el tiempo va pasando, una misteriosa fuerza trata de convencerlas de que es imposible realizar la Leyenda Personal.
+
+Lo que el viejo estaba diciendo no tenía mucho sentido para el muchacho. Pero él quería saber qué eran esas «fuerzas misteriosas»; la hija del comerciante se quedaría boquiabierta con esto.
+
+—Son fuerzas que parecen malas, pero en verdad te están enseñando cómo realizar tu Leyenda Personal. Están preparando tu espíritu y tu voluntad, porque existe una gran verdad en este planeta; seas quien seas o hagas lo que hagas, cuando deseas con firmeza alguna cosa, es porque este deseo nació en el alma del Universo. Es tu misión en la Tierra.
+
+—¿Aunque sólo sea viajar? ¿O casarse con la hija de un comerciante de tejidos?
+
+—O buscar un tesoro. El Alma del Mundo se alimenta con la felicidad de las personas. O con la infelicidad, la envidia, los celos. Cumplir su Leyenda Personal es la única obligación de los hombres. Todo es una sola cosa. Y cuando quieres algo, todo el Universo conspira para que realices tu deseo.
+
+Durante algún tiempo permanecieron silenciosos, contemplando la plaza y la gente. Fue el viejo quien habló primero.
+
+—¿Por qué cuidas ovejas?
+
+—Porque me gusta viajar.
+
+El viejo señaló a un vendedor de palomitas de maíz que, con su carrito rojo,
+estaba en un rincón de la plaza.
+
+—Aquél vendedor también deseó viajar cuando era niño; pero prefirió comprar
+un carrito para vender sus palomitas y así juntar dinero durante años. Cuando sea viejo, piensa pasar un mes en África. Jamás entendió que la gente siempre está en condiciones de realizar lo que sueña.
+
+—Debería haber elegido ser pastor —pensó en voz alta el muchacho.
+
+—Lo pensó —dijo el viejo—. Pero los vendedores de palomitas de maíz son más importantes que los pastores. Tienen una casa, mientras que los pastores duermen a la intemperie. Las personas prefieren casar a sus hijas con vendedores de palomitas antes que con pastores.
+
+El muchacho sintió una punzada en el corazón al recordar a la hija del comerciante. En su ciudad debía de haber algún vendedor de palomitas.
+
+—En fin, que lo que las personas piensan sobre vendedores de palomitas y pastores pasa a ser más importante para ellas que la Leyenda Personal. El viejo hojeó el libro y se distrajo leyendo una página. El chico esperó un poco y lo interrumpió de
