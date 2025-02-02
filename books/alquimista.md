@@ -288,3 +288,149 @@ un carrito para vender sus palomitas y así juntar dinero durante años. Cuando 
 El muchacho sintió una punzada en el corazón al recordar a la hija del comerciante. En su ciudad debía de haber algún vendedor de palomitas.
 
 —En fin, que lo que las personas piensan sobre vendedores de palomitas y pastores pasa a ser más importante para ellas que la Leyenda Personal. El viejo hojeó el libro y se distrajo leyendo una página. El chico esperó un poco y lo interrumpió de
+
+##### Pagina 21
+
+la misma manera que él lo había interrumpido.
+
+—¿Por qué habla de todo esto conmigo?
+
+—Porque tú intentas vivir tu Leyenda Personal. Y estás a punto de desistir de ella. —¿Y usted aparece siempre en estos momentos?
+
+—No siempre de esta forma, pero jamás dejé de aparecer. A veces aparezco bajo
+la forma de una buena salida, de una buena idea. Otras veces, en un momento crucial, hago que todo se vuelva más fácil. Y cosas así. Pero la mayor parte de la gente no se da cuenta.
+
+El viejo le contó que la semana pasada había tenido que aparecer ante un garimpeiro (buscador de oro y piedras preciosas) bajo la forma de una piedra. El garimpeiro lo había dejado todo para partir en busca de esmeraldas. Durante cinco años trabajó en un río, y había partido 999 999 piedras en busca de una esmeralda. En ese momento el garimpeiro pensó en desistir, y sólo le faltaba una piedra, solamente UNA PIEDRA, para descubrir su esmeralda. Como era un hombre que había apostado por su Leyenda Personal, el viejo decidió intervenir. Se transformó en una piedra, que rodó sobre el pie del garimpeiro. Éste, con la rabia y la frustración de los cinco años perdidos, arrojó la piedra lejos. Pero la arrojó con tanta fuerza que chocó contra otra y se rompió, mostrando la esmeralda más bella del mundo.
+
+—Las personas aprenden muy pronto su razón de vivir —dijo el viejo con cierta amargura en los ojos—. Quizá también sea por eso que desisten tan pronto. Pero así es el mundo.
+
+Entonces el muchacho se acordó de que la conversación había empezado con el tesoro escondido.
+
+—Los tesoros son levantados de la tierra por los torrentes de agua, y enterrados también por ellos —prosiguió el viejo—. Si quieres saber sobre tu tesoro, tendrás que cederme la décima parte de tus ovejas.
+
+—¿Y no sirve una décima parte del tesoro?
+
+El viejo se decepcionó.
+
+—Si empiezas por prometer lo que aún no tienes, perderás tu voluntad para
+conseguirlo.
+
+El muchacho le contó que había prometido una parte a la gitana.
+
+—Los gitanos son muy listos —dijo el viejo con un suspiro—. De cualquier
+manera, es bueno que aprendas que todo en la vida tiene un precio. Y esto es lo que los Guerreros de la Luz intentan enseñar.
+El viejo le devolvió el libro.
+
+—Mañana, a esta misma hora, me traes aquí una décima parte de tus ovejas. Y yo te enseñaré cómo conseguir el tesoro escondido. Buenas tardes.
+
+Y desapareció por una de las esquinas de la plaza.
+
+El muchacho intentó leer el libro, pero ya no consiguió concentrarse. Estaba
+
+##### Pagina 22
+
+agitado y tenso, porque sabía que el viejo decía la verdad. Se fue hasta el vendedor y le compró una bolsa de palomitas, mientras meditaba si debía o no contarle lo que le había dicho el viejo. «A veces es mejor dejar las cosas como están», pensó el chico, y no dijo nada. Si se lo contaba, el vendedor se pasaría tres días pensando en abandonarlo todo, pero estaba muy acostumbrado a su carrito. Podía evitarle ese sufrimiento.
+
+Comenzó a caminar sin rumbo por la ciudad, y llegó hasta el puerto. Había un pequeño edificio, y en él una ventanilla donde la gente compraba pasajes. Egipto estaba en África.
+
+—¿Quieres algo? —preguntó el hombre de la ventanilla.
+
+—Quizá mañana —contestó el chico alejándose. Sólo con vender una oveja podría cruzar hasta el otro lado del estrecho. Era una idea que le espantaba.
+
+—Otro soñador —dijo el hombre de la ventanilla a su ayudante, mientras el muchacho se alejaba—. No tiene dinero para viajar.
+Cuando estaba en la ventanilla el muchacho se había acordado de sus ovejas, y sintió miedo de volver junto a ellas. Había pasado dos años aprendiéndolo todo sobre el arte del pastoreo: sabía esquilar, cuidar a las ovejas preñadas, protegerlas de los lobos. Conocía todos los campos y pastos de Andalucía. Conocía el precio justo de comprar y vender cada uno de sus animales.
+
+Decidió volver al establo de su amigo por el camino más largo. La ciudad también tenía un castillo, y decidió subir la rampa de piedra y sentarse en una de sus murallas. Desde allí arriba se podía ver África. Alguien le había explicado en cierta ocasión que por allí llegaron los moros que ocuparon durante tantos años casi toda España. Y el muchacho detestaba a los moros. Además, habían sido ellos los que trajeron a los gitanos.
+
+Desde allí podía ver también casi toda la ciudad, inclusive la plaza donde había conversado con el viejo.
+
+«Maldita sea la hora en que encontré a ese viejo», pensó. Había ido solamente a buscar a una mujer que interpretase sueños. Ni la mujer ni el viejo concedían importancia al hecho de que él era un pastor. Eran personas solitarias, que ya no confiaban en la vida, y no entendían que los pastores terminaran aficionándose a sus ovejas. Él conocía los detalles de cada una de ellas: sabía cuál cojeaba, cuál tendría cría dentro de dos meses, y cuáles eran las más perezosas. Sabía también cómo esquilarlas y cómo matarlas. Si se decidiera a partir, ellas sufrirían.
+
+Comenzó a soplar el viento. Él conocía aquel viento: la gente lo llamaba Levante, porque con él llegaron también las hordas de infieles. Hasta que conoció Tarifa nunca había imaginado que África estuviera tan cerca. Eso suponía un gran peligro: los moros podían invadirnos nuevamente.
+
+El Levante comenzó a soplar más fuerte. «Estoy entre las ovejas y el tesoro»,
+
+##### Pagina 23
+
+pensaba el muchacho. Tenía que decidirse entre una cosa a la que se había acostumbrado y una cosa que le gustaría tener. Estaba también la hija del comerciante, pero ella no era tan importante como las ovejas, porque no dependía de él. Hasta era posible que ni se acordara de él. Tuvo la seguridad de que si no aparecía dentro de dos días, la chica ni siquiera lo notaría; para ella todos los días eran iguales y cuando todos los días parecen iguales es porque las personas han dejado de percibir las cosas buenas que aparecen en sus vidas siempre que el sol cruza el cielo.
+
+«Yo abandoné a mi padre, a mi madre y el castillo de mi ciudad. Ellos se acostumbraron y yo me acostumbré. Las ovejas también se acostumbrarán a mi ausencia», pensó el muchacho.
+
+Desde allá arriba contempló la plaza. El vendedor de palomitas continuaba vendiendo sus papelinas. Una joven pareja se sentó en el banco donde él había estado conversando con el viejo y se dio un largo beso.
+
+«El vendedor de palomitas», dijo para sí sin completar la frase. Porque el Levante había comenzado a soplar con más fuerza y él se quedó sintiendo el viento en el rostro. El viento traía a los moros, es verdad, pero también traía el olor del desierto y de las mujeres cubiertas con velo. Traía el sudor y los sueños de los hombres que un día habían partido en busca de lo desconocido, de oro, de aventuras... y de pirámides. El muchacho comenzó a envidiar la libertad del viento, y percibió que podría ser como él. Nada se lo impedía, excepto él mismo. Las ovejas, la hija del comerciante, los campos de Andalucía no eran más que los pasos de su Leyenda Personal.
+
+Al día siguiente, el muchacho se encontró con el viejo a mediodía. Traía seis ovejas consigo.
+
+—Estoy sorprendido —exclamó—. Mi amigo compró inmediatamente las ovejas. Dijo que toda su vida había soñado con ser pastor, y que aquello era una buena señal.
+
+—Siempre es así —dijo el viejo—. Lo llamamos el Principio Favorable. Si juegas a las cartas por primera vez, verás que casi con seguridad ganas. Es la suerte del principiante.
+
+—¿Y por qué?
+
+—Porque la vida quiere que vivas tu Leyenda Personal.
+
+Después comenzó a examinar las seis ovejas y descubrió que una de ellas
+cojeaba. El muchacho le explicó que no tenía importancia porque era la más inteligente y producía bastante lana.
+—¿Dónde está el tesoro? —preguntó.
+
+—El tesoro está en Egipto, cerca de las Pirámides.
+
+El muchacho se asustó. La vieja le había dicho lo mismo, pero no le había
+cobrado nada.
+
+—Para llegar hasta él tendrás que seguir las señales. Dios escribió en el mundo el
+camino que cada hombre debe seguir. Sólo hay que leer lo que Él escribió para ti.
+
+##### Pagina 24
+
+Antes de que el muchacho dijera nada, una mariposa comenzó a revolotear entre él y el viejo. Se acordó de su abuelo: cuando era pequeño, su abuelo le había dicho que las mariposas son señal de buena suerte. Como los grillos, las mariquitas, las lagartijas y los tréboles de cuatro hojas.
+
+—Eso es —dijo el viejo, que era capaz de leer sus pensamientos—. Exactamente como tu abuelo te enseñó. Éstas son las señales.
+Después el viejo abrió el manto que le cubría el pecho. El muchacho se quedó impresionado con lo que vio, y recordó el brillo que había detectado el día anterior. El viejo llevaba un pectoral de oro macizo, cubierto de piedras preciosas.
+Era realmente un rey. Debía de ir disfrazado así para huir de los asaltantes.
+
+—Toma —dijo el viejo sacando una piedra blanca y una piedra negra que llevaba prendidas en el centro del pectoral de oro—. Se llaman Urim y Tumim. La negra quiere decir «sí» y la blanca quiere decir «no». Cuando tengas dificultad para percibir las señales, te serán de utilidad. Hazles siempre una pregunta objetiva, pero en general procura tomar tú las decisiones. El tesoro está en las Pirámides y esto tú ya lo sabías; pero tuviste que pagar seis ovejas porque yo te ayudé a tomar una decisión.
+El muchacho se guardó las piedras en el zurrón. De ahora en adelante, tomaría sus propias decisiones.
+
+—No te olvides de que todo es una sola cosa. Y, sobre todo, no te olvides de llegar hasta el fin de tu Leyenda Personal.
+»Antes, sin embargo, me gustaría contarte una pequeña historia:
+
+»Cierto mercader envió a su hijo con el más sabio de todos los hombres para que aprendiera el Secreto de la Felicidad. El joven anduvo durante cuarenta días por el desierto, hasta que llegó a un hermoso castillo, en lo alto de una montaña. Allí vivía el sabio que buscaba.
+
+»Sin embargo, en vez de encontrar a un hombre santo, nuestro héroe entró en una sala y vio una actividad inmensa; mercaderes que entraban y salían, personas conversando en los rincones, una pequeña orquesta que tocaba melodías suaves y una mesa repleta de los más deliciosos manjares de aquella región del mundo. El sabio conversaba con todos, y el joven tuvo que esperar dos horas para que le atendiera.
+
+»El sabio escuchó atentamente el motivo de su visita, pero le dijo que en aquel momento no tenía tiempo de explicarle el Secreto de la Felicidad. Le sugirió que diese un paseo por su palacio y volviese dos horas más tarde.
+
+»Pero quiero pedirte un favor —añadió el sabio entregándole una cucharilla de té en la que dejó caer dos gotas de aceite—. Mientras camines lleva esta cucharilla y cuida de que el aceite no se derrame.
+
+»El joven comenzó a subir y bajar las escalinatas del palacio manteniendo siempre los ojos fijos en la cuchara. Pasadas las dos horas, retornó a la presencia del sabio.
+
+##### Pagina 25
+
+»¿Qué tal? —preguntó el sabio—. ¿Viste los tapices de Persia que hay en mi comedor? ¿Viste el jardín que el Maestro de los Jardineros tardó diez años en crear? ¿Reparaste en los bellos pergaminos de mi biblioteca?
+»El joven, avergonzado, confesó que no había visto nada. Su única preocupación había sido no derramar las gotas de aceite que el Sabio le había confiado.
+
+»Pues entonces vuelve y conoce las maravillas de mi mundo —dijo el Sabio—. No puedes confiar en un hombre si no conoces su casa.
+»Ya más tranquilo, el joven cogió nuevamente la cuchara y volvió a pasear por el palacio, esta vez mirando con atención todas las obras de arte que adornaban el techo y las paredes. Vio los jardines, las montañas a su alrededor, la delicadeza de las flores, el esmero con que cada obra de arte estaba colocada en su lugar. De regreso a la presencia del sabio, le relató detalladamente todo lo que había visto.
+
+»¿Pero dónde están las dos gotas de aceite que te confié? —preguntó el Sabio. »El joven miró la cuchara y se dio cuenta de que las había derramado.
+
+»Pues éste es el único consejo que puedo darte —le dijo el más Sabio de los
+Sabios—. El secreto de la felicidad está en mirar todas las maravillas del mundo, pero sin olvidarse nunca de las dos gotas de aceite en la cuchara.
+
+El muchacho guardó silencio. Había comprendido la historia del viejo rey. A un pastor le gusta viajar, pero jamás olvida a sus ovejas.
+
+El viejo miró al muchacho y con las dos manos extendidas hizo algunos gestos extraños sobre su cabeza. Después cogió las ovejas y siguió su camino.
+
+En lo alto de la pequeña ciudad de Tarifa existe un viejo fuerte construido por los moros, y quien se sienta en sus murallas consigue ver al mismo tiempo una plaza, un vendedor de palomitas de maíz y un pedazo de África. Melquisedec, el rey de Salem, se sentó en la muralla del fuerte aquella tarde y sintió el viento de Levante en su rostro. Las ovejas se agitaban a su lado, temerosas de su nuevo dueño, y excitadas ante tantos cambios. Todo lo que ellas querían era sólo comida y agua.
+Melquisedec contempló el pequeño barco que estaba zarpando del puerto. Nunca más volvería a ver al muchacho, del mismo modo que jamás volvió a ver a Abraham, después de haberle cobrado el diezmo. No obstante, ésta era su obra.
+
+Los dioses no deben tener deseos, porque los dioses no tienen Leyenda Personal. Sin embargo, el rey de Salem deseó íntimamente que el muchacho tuviera éxito.
+
+«Lástima que se olvidará en seguida de mi nombre —pensó—. Debería habérselo repetido varias veces. Así, cuando hablase de mí, diría que soy Melquisedec, el rey de Salem».
+
+Después miró hacia el cielo, un poco arrepentido.
+
+«Sé que es vanidad de vanidades, como Tú dijiste, Señor. Pero un viejo rey a veces tiene que estar orgulloso de sí mismo».
+«Qué extraña es África», pensó el muchacho.
