@@ -8,3 +8,7 @@
 
 - [Hotel Quinta Santiago](https://hotelquintasantiago.mx/)
 - [Hotel Quinta Santiago Trip Advisor](https://www.tripadvisor.com/Hotel_Review-g479232-d578473-Reviews-Hotel_Quinta_Santiago-Queretaro_City_Central_Mexico_and_Gulf_Coast.html)
+- [Senorial Hotel](https://en.senorialqro.com/)
+- [Senorial Hotel Trip Advisor](https://www.tripadvisor.com/Hotel_Review-g479232-d1143399-Reviews-Hotel_Senorial-Queretaro_City_Central_Mexico_and_Gulf_Coast.html)
+- [Hotel Madero](https://hotelmaderoqueretaro.com/en/)
+- [Hotel Madero Trip Advisor](https://www.tripadvisor.com/Hotel_Review-g479232-d8355979-Reviews-Hotel_Madero-Queretaro_City_Central_Mexico_and_Gulf_Coast.html)
