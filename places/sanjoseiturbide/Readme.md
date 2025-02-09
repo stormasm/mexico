@@ -7,4 +7,10 @@
 
 ##### Places to Stay
 
+- [Trip Advisor](https://www.tripadvisor.com/Hotels-g3179424-San_Jose_Iturbide_Central_Mexico_and_Gulf_Coast-Hotels.html)
 - [La Mansion](https://mansiondesanjose.com.mx/)
+
+##### Youtube
+
+- [Documentary](https://www.youtube.com/watch?v=xv2tXlbrXZE)
+- [Shots of the people and town](https://www.youtube.com/watch?v=yFBUmhn_fWE)
