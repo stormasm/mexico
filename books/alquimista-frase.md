@@ -1,4 +1,8 @@
 
+##### Pagina 12
+
+- La tienda del hombre estaba llena, y el comerciante *rogó* al pastor que esperase hasta el atardecer.
+- The man's shop was full, and the merchant begged the shepherd to wait until evening.
 
 ##### Pagina 15
 
