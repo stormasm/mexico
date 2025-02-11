@@ -3,6 +3,9 @@
 
 - La tienda del hombre estaba llena, y el comerciante *rogó* al pastor que esperase hasta el atardecer.
 - The man's shop was full, and the merchant begged the shepherd to wait until evening.
+- Te *ruego* que me ayudes con este asunto. I beg you to help me with this issue.
+- Este *asunto* es de muchísima importancia para mi. This issue is extremely important to me.
+- Disfrutamos *muchísimo* de las vacaciones en la Florida. We very much enjoyed our vacation in Florida.
 
 ##### Pagina 15
 
