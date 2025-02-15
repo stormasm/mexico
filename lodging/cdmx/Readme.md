@@ -4,9 +4,6 @@
 - [Blueground | Apartamentos amueblados en Ciudad de México](https://www.google.com/search?q=Blueground+%7C+Cuauht%C3%A9moc+Business+Center+%26+Terrace+mexico+city&rlz=1C5OZZY_enUS1141US1141&oq=Blueground+%7C+Cuauht%C3%A9moc+Business+Center+%26+Terrace+mexico+city&gs_lcrp=EgZjaHJvbWUyBggAEEUYOTIGCAEQRRg8MgYIAhBFGDwyBggDEEUYPNIBCDMzNDdqMGo3qAIAsAIA&sourceid=chrome&ie=UTF-8)
 - [Blueground | Cuauhtémoc Business Center & Terrace](https://www.airbnb.com/rooms/1150812197250202408?source_impression_id=p3_1739655598_P3uMUP8iC-X5NDvX)
 
-
-- [parque mexico @ 2:24](https://www.youtube.com/watch?v=h_KQ-WB86jY)
-
 ### Coyoacan
 
 - [Chalet Carmen Coyoacán](https://www.chaletdelcarmen.com/en/)
