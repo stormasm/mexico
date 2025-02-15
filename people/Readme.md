@@ -13,8 +13,8 @@ Hemos estado en la Ciudad de México ya seis semanas y hoy fue uno de nuestros d
 
 Gracias por compartir tu tiempo con nosotros.
 
-Un abrazo,
-Miguel y Michele
+Un abrazo,   
+Miguel y Michele   
 M & M
 
 ---
