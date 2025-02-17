@@ -1,4 +1,10 @@
 
+#### Mexico Relocation Guide
+
+- [Must-Know Mexican Residency Updates for 2025](https://www.youtube.com/watch?v=hCyVkSJNfOU)
+
+#### Random Stuff
+
 - [Qroo Paul: Income Requirements for Residency ](https://www.youtube.com/watch?v=zQh7beYq55Y)
 - [How to open a bank account in Mexico](https://www.youtube.com/watch?v=bofVS_jP5T8)
 
