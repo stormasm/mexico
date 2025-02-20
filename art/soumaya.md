@@ -53,3 +53,14 @@ Works by European artists like Matisse, Degas, and Rodin
 The world's largest collection of pre-Hispanic and colonial coins
 A vast collection of letters, historical documents, and religious relics
 The world's largest collection of sculptures by Auguste Rodin outside France
+
+### Rodin's Gates of Hell
+
+The Gates of Hell sculpture in the Soumaya Museum in Mexico City is made of bronze with a golden platinum surface.
+
+Explanation
+
+The Gates of Hell is a monumental sculpture by French artist Auguste Rodin that depicts a scene from Dante's Divine Comedy. The sculpture is made of bronze and is 6 meters high, 4 meters wide, and 1 meter deep. It contains 180 figures that range in size from 6 inches to over 3 feet.
+
+The Soumaya Museum in Mexico City houses the most important collection of Rodin's work outside of France. The museum's collection includes works of mythological inspiration, portraits, and body fragmentation.
+Rodin was a neoclassical sculptor who revolutionized the genre. He was trained as a modeler and created his work first in clay. His bronzes were cast through the lost wax casting process.
