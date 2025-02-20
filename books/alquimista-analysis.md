@@ -31,3 +31,9 @@ Both authors use accessible language to explore complex philosophical concepts, 
 
 #### Symbolic Imagery:
 Both stories utilize symbolic elements and metaphors to convey their messages effectively.
+
+### References
+
+- [Gooogle Search: paulo coelho alchemist versus the little prince](https://www.google.com/search?q=paulo+coelho+alchemist+versus+the+little+prince&rlz=1C5OZZY_enUS1141US1141&oq=paulo+coelho+alchemist+versus+the+little&gs_lcrp=EgZjaHJvbWUqBwgBECEYoAEyBggAEEUYOTIHCAEQIRigATIHCAIQIRigATIHCAMQIRiPAjIHCAQQIRiPAtIBCTI0Njk1ajBqN6gCALACAA&sourceid=chrome&ie=UTF-8)
+- [Book Review: The Little Prince - The Alchemist](https://africa.peacelink.org/wajibu/articles/art_4491.html)
+- [Enchanting Insights: 5 Books for Fans of The Little Prince](https://sobrief.com/lists/enchanting-insights-5-books-for-fans-of-the-little-prince)
