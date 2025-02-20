@@ -1,4 +1,6 @@
 
+- [Wikipedia: The Alchemist](https://en.wikipedia.org/wiki/The_Alchemist_(novel))
+
 #### paulo coelho alchemist versus the little prince
 
 Jim and I discussed The Little Prince this evening and based on his description
