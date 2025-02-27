@@ -3,6 +3,10 @@
 
 - [Must-Know Mexican Residency Updates for 2025](https://www.youtube.com/watch?v=hCyVkSJNfOU)
 
+##### Mexican Consulate Documents
+
+- [English website on tourist visas](https://consulmex.sre.gob.mx/boston/index.php/visas-english)
+
 #### Random Stuff
 
 - [Qroo Paul: Income Requirements for Residency ](https://www.youtube.com/watch?v=zQh7beYq55Y)
