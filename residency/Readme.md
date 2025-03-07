@@ -7,6 +7,10 @@
 
 - [English website on tourist visas](https://consulmex.sre.gob.mx/boston/index.php/visas-english)
 
+##### Spring 2025
+
+- [google news: mexico residency visa](https://news.google.com/search?for=mexico+residency+visa&hl=en-US&gl=US&ceid=US%3Aen)
+
 #### Random Stuff
 
 - [Qroo Paul: Income Requirements for Residency ](https://www.youtube.com/watch?v=zQh7beYq55Y)
