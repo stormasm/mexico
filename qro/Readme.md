@@ -12,7 +12,7 @@
 - If you walk to the end of Allende at Universidad these are the bus numbers
 that go by heading east
 
-22, 24, 27, 33, 34, 43, 46, 48, 51, 55, 61
+22, 24, 27, 33, 34, 43, 46, 48, 51, 55, 61, 65
 
 #### Allende y Universidad West
 
@@ -21,7 +21,7 @@ that go by heading east
 24, 27, 33, 34, 43, 46, 51, 53, 55, 61, 65
 
 On this side of the street I did not see a 22 or 48.   
-In addition this side has a 53 and 65.
+In addition this side has a 53.
 
 #### Definitions
 
