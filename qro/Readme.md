@@ -24,8 +24,8 @@ that go by heading east
 
 24, 27, 33, 34, 43, 46, 51, 53, 55, 61, 65
 
-On this side of the street I did not see a 22 or 48.   
-In addition this side has a 53.
+Universidad E has 22 y 48.   
+Universidad W has a 53.
 
 #### Definitions
 
