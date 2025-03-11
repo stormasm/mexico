@@ -7,6 +7,10 @@
 
 - check out page 45 of the bus guide for the map of buses
 
+#### Allende y Universidad East and West
+
+24, 27, 33, 34, 43, 46, 51, 55, 61, 65
+
 #### Allende y Universidad East
 
 - If you walk to the end of Allende at Universidad these are the bus numbers
