@@ -1,31 +1,9 @@
 
+- [ricardo valdez queretaro la museo de la ciudad de queretaro](https://www.google.com.mx/search?q=ricardo+valdez+queretaro+la+museo+de+la+ciudad+de+queretaro&sca_esv=2a239d77fdcafbe4&sxsrf=AHTn8zo5UVvsZaXONhIXvgYImtP1ndnKng%3A1741744686515&ei=LurQZ5WKH7qh5NoPld_R2AU&oq=ricardo+valdez+queretaro+la+museo+de+la+ciu&gs_lp=Egxnd3Mtd2l6LXNlcnAiK3JpY2FyZG8gdmFsZGV6IHF1ZXJldGFybyBsYSBtdXNlbyBkZSBsYSBjaXUqAggEMgUQIRigATIFECEYoAEyBRAhGKABMgUQIRigATIFECEYoAFIzqMBUK4JWNp9cAJ4AJABAJgBsgGgAewdqgEEMC4yNrgBAcgBAPgBAZgCGaACsRzCAgQQIxgnwgIFEAAY7wXCAggQABiABBiiBMICBBAhGBWYAwCIBgGSBwQxLjI0oAeFfw&sclient=gws-wiz-serp)
+
 #### Maps
 
 - [map of neighborhoods](https://www.youtube.com/watch?v=0o0FI1N2_k0&t=309s)
-
-#### QRO Bus
-
-- check out page 45 of the bus guide for the map of buses
-
-#### Allende y Universidad East and West
-
-24, 27, 33, 34, 43, 46, 51, 55, 61, 65
-
-#### Allende y Universidad East
-
-- If you walk to the end of Allende at Universidad these are the bus numbers
-that go by heading east
-
-22, 24, 27, 33, 34, 43, 46, 48, 51, 55, 61, 65
-
-#### Allende y Universidad West
-
-- On the other side of Universidad the buses are heading west
-
-24, 27, 33, 34, 43, 46, 51, 53, 55, 61, 65
-
-Universidad E has 22 y 48.   
-Universidad W has a 53.
 
 #### Definitions
 
