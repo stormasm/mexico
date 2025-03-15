@@ -1,7 +1,8 @@
 
 #### Mexico Relocation Guide
 
-- [Must-Know Mexican Residency Updates for 2025](https://www.youtube.com/watch?v=hCyVkSJNfOU)
+- [The Complete Guide to Mexican Resident Visa (Temporary and Permanent Residency)](https://mexicorelocationguide.com/mexico-resident-visa/)
+- [Youtube: Must-Know Mexican Residency Updates for 2025](https://www.youtube.com/watch?v=hCyVkSJNfOU)
 
 ##### Mexican Consulate Documents
 
