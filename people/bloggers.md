@@ -15,3 +15,9 @@ https://www.youtube.com/@laura-bronner/videos
 
 Some great videos awhile back about SE Asia including Vietnam, Cambodia, Laos   
 https://www.youtube.com/@PaddyDoyle./videos
+
+She travels to different parts of the world.   
+https://www.youtube.com/@maliniangelica1/videos
+
+Most of the more recent stuff is from the US but older videos are from other parts of the world.   
+https://www.youtube.com/@PeterSantenello/videos
