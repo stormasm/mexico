@@ -1,4 +1,9 @@
 
+#### Interview Questions
+
+- [People Are Getting DENIED Mexico Residency Because of This](https://www.youtube.com/watch?v=yvCmRMaC6OI)
+- Do not say you are staying in Mexico part time because you already get 180 days on your passport
+
 #### Mexico Relocation Guide
 
 - [The Complete Guide to Mexican Resident Visa (Temporary and Permanent Residency)](https://mexicorelocationguide.com/mexico-resident-visa/)
