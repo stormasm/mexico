@@ -4,6 +4,9 @@
 - both southwest and alaska have non stop flights to eugene from [SAN](https://en.wikipedia.org/wiki/San_Diego_International_Airport)
 - fly to the [CBX](https://en.wikipedia.org/wiki/Cross_Border_Xpress) in [TIJ](https://en.wikipedia.org/wiki/Tijuana_International_Airport)
 
+### TIJ
+
+- puebla nonstop @ 1:34pm - 4:01pm - Volaris
 
 #### American
 
