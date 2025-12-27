@@ -1,4 +1,10 @@
 
+#### San Diego
+
+- both southwest and alaska have non stop flights to eugene from [SAN](https://en.wikipedia.org/wiki/San_Diego_International_Airport)
+- fly to the [CBX](https://en.wikipedia.org/wiki/Cross_Border_Xpress) in [TIJ](https://en.wikipedia.org/wiki/Tijuana_International_Airport)
+
+
 #### American
 
 - Cdmx - Phx - 3:45pm -> 6:28
@@ -14,6 +20,7 @@
 - [Sky Scanner](https://www.skyscanner.com/)
 - [Flight Connections](https://www.flightconnections.com/)
 - [Wikipedia Mexico Airport List](https://en.wikipedia.org/wiki/List_of_the_busiest_airports_in_Mexico)
+- [Tijuana Sky Bridge](https://wheretheroadforks.com/how-to-fly-out-of-tijuana-airport-and-use-cross-border-xpress/)
 
 ### Biggest Airports in Mexico
 
