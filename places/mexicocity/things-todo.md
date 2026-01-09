@@ -1,5 +1,10 @@
 
 
+- [$3 MONSTER Breakfast Sandwich | Best CHEAP EATS in Mexico City!](https://www.youtube.com/watch?v=N5uFQHdfUoo)
+- [Plaza Garibaldi]
+- [Museo de Tequila y Mezcal]()
+- [Some of Mexico City's Weird, Obscure but Interesting Museums](https://www.youtube.com/watch?v=JBs0Q1IPAUE)
+
 ---
 
 - Palacio Postal
