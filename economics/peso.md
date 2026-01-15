@@ -1,4 +1,8 @@
 
+### References
+
+- [Jan 13, 2026](https://www.forex.com/en-us/news-and-analysis/usdmxn-outlook-the-super-peso-maintains-its-strength-following-us-inflation-data/)
+
 ### Peso Dollar Relationship 2026
 
 The Mexican Peso is strengthening against the U.S. Dollar due to high interest rate differentials (Mexico's central bank keeping rates higher), strong foreign investment (especially nearshoring/FDI), booming tourism, a weaker dollar amid potential Fed cuts, and Mexico's robust trade with the U.S., all boosting demand for pesos and stability.
