@@ -22,3 +22,7 @@ La Colonia Verónica Anzures es una zona residencial céntrica dentro de la Alca
 - Nombrada así por una antigua capilla de la Hacienda de Anzures, y se desarrolló a principios del siglo XX en terrenos de dicha hacienda.
 
 En resumen, Verónica Anzures es una colonia con historia, buena ubicación y comodidades, ofreciendo un estilo de vida residencial céntrico en la alcaldía Miguel Hidalgo.
+
+### Reference
+
+- [Verónica Anzures](https://es.wikipedia.org/wiki/Ver%C3%B3nica_Anzures)
