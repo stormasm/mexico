@@ -1,6 +1,12 @@
 
 - [Mexico City Like a Local: 5 Days Rediscovering the Best Food Spots and Hidden Gems](https://www.youtube.com/watch?v=NhBzqHD_SFw)
-- Cafe
+- Cafe La Pagoda
+- Pasteleria Ideal
+- El Moro get the Consuelo
+- Tamales Madre
+- Panaderia Rosetta - Colima 179 - Roma Nte
+- Tacos Atarantados - Cordoba 113 - Roma Nte
+- Cafe Ruta de la Seda - Coyocan
 
 ---
 
