@@ -1,4 +1,8 @@
 
+- [Mexico City Like a Local: 5 Days Rediscovering the Best Food Spots and Hidden Gems](https://www.youtube.com/watch?v=NhBzqHD_SFw)
+- Cafe
+
+---
 
 - [$3 MONSTER Breakfast Sandwich | Best CHEAP EATS in Mexico City!](https://www.youtube.com/watch?v=N5uFQHdfUoo)
 - [Plaza Garibaldi]
