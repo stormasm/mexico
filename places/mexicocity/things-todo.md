@@ -10,6 +10,11 @@
 
 ---
 
+- [3 perfect days in Mexico City](https://www.tripadvisor.com/Articles-l2yvNfHgmO2I-3_days_in_mexico_city.html)
+- Breakfast at El Cardenal
+
+---
+
 - [$3 MONSTER Breakfast Sandwich | Best CHEAP EATS in Mexico City!](https://www.youtube.com/watch?v=N5uFQHdfUoo)
 - [Plaza Garibaldi]
 - [Museo de Tequila y Mezcal]()
