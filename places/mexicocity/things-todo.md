@@ -1,4 +1,11 @@
 
+### Free Museums on Sunday in Cdmx
+
+- [These 10 CDMX museums have free tickets on Sundays](https://cdmxsecreta.com/en/museums-with-free-entry-on-sundays-cdmx/)
+- [9 Museums in Mexico City with Free Admission ONLY on Sundays](https://www.nomadicbackpacker.com/museums-with-free-entry-on-sundays-mexico-city.html)
+
+---
+
 - [Mexico City Like a Local: 5 Days Rediscovering the Best Food Spots and Hidden Gems](https://www.youtube.com/watch?v=NhBzqHD_SFw)
 - Cafe La Pagoda
 - Pasteleria Ideal
