@@ -6,5 +6,6 @@
 - [Set 03 - Cdmx 2026 Museo Soumaya Sala Rodin](https://photos.google.com/share/AF1QipNiN5qWZ00qauNl2FzUL1SBy886A4sZqopguArmTdMX7caA_tzWVyxm6PjWT7ihQg?key=ZkUwWjdzaWZDT0NOTUtJVWdKakdDY1VydGpoUGhn)
 - [Set 04 - Cdmx 2026 Museo Soumaya Sala 5](https://photos.google.com/share/AF1QipOpMkLQPU99nllEFKsXK5vBdpn3FrmgjUEYS5RLhcgKsc8EMB_BD0JPVZr9jPJp_Q?key=M2k2T2ZUR2wyX2g2cTBqbGhRTVFWaUpMSC02RHBB)
 - [Set 05 - Cdmx 2026 Corte de Pello y Polleria Miguel](https://photos.google.com/share/AF1QipNnzaurajDqEo87sOVAGEXpGL1S3eGfTyVq9eBBSJlGVdDhpdpifXbucNdmcxDuSQ?key=SDV5ZTZkbkRsNzI4Uk1MdUFxZFNwSzJ1ZENvNUt3)
+- [Set 06 - Cdmx 2026 Museo Diego River](https://photos.google.com/u/2/share/AF1QipOUeu5Ix0rEcOyuAXFzl3PfeunzkDCBFjJW344lCeUYPefIlbPoeHXsetbH5sZRSg?key=dHlHRG84WC0tZG01Nl82RFRVY25BcnNGTlE1aDhB)
 
-Last updated Saturday January 24, 2026
+Last updated Sunday January 25, 2026

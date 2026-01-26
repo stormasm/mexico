@@ -37,7 +37,7 @@ Walmart to get our dinner salad along with some other stuff mainly bananas,
 an avacado and rice cakes.  We came home, Hb took a shower and then we had
 our yummy dinner of salad and the cakes from the Pasteleria.
 
-An amazing Sunday in Mexico City was had by all. 
+An amazing Sunday in Mexico City was had by all.gs 
 
 ### Reference
 
