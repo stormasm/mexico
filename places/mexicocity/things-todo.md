@@ -1,4 +1,8 @@
 
+- Palacio Postal
+
+---
+
 ### Free Museums on Sunday in Cdmx
 
 - [These 10 CDMX museums have free tickets on Sundays](https://cdmxsecreta.com/en/museums-with-free-entry-on-sundays-cdmx/)
