@@ -1,4 +1,8 @@
 
+### Random
+
+- [A Day Exploring the Sights of Colonia La Roma Norte](https://www.loistravels.com/post/a-day-exploring-the-sights-of-la-roma-norte)
+
 ### State of Michoacán
 
 - [Wikipedia Michoacán](https://en.wikipedia.org/wiki/Michoac%C3%A1n)
