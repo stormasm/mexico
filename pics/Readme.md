@@ -8,5 +8,6 @@
 - [Set 05 - Cdmx 2026 Corte de Pelo y Polleria Miguel](https://photos.google.com/share/AF1QipNnzaurajDqEo87sOVAGEXpGL1S3eGfTyVq9eBBSJlGVdDhpdpifXbucNdmcxDuSQ?key=SDV5ZTZkbkRsNzI4Uk1MdUFxZFNwSzJ1ZENvNUt3)
 - [Set 06 - Cdmx 2026 Museo Diego River](https://photos.google.com/u/2/share/AF1QipOUeu5Ix0rEcOyuAXFzl3PfeunzkDCBFjJW344lCeUYPefIlbPoeHXsetbH5sZRSg?key=dHlHRG84WC0tZG01Nl82RFRVY25BcnNGTlE1aDhB)
 - [Set 07 - Cdmx 2026 San Joaquín Subway Stop](https://photos.google.com/u/2/share/AF1QipM5nrftCac0CEu492rhZ0yC2pFMs62g9UeBEXINbD4QTtH_jV77GWHT8HujNEFgkg?key=VndXbVNuOHhsR05DSnoyWVY3cmhIWUpsS3lTaTd3)
+- [Set 08 - Cdmx 2026 Museo Soumaya Part II](https://photos.google.com/u/2/share/AF1QipN_vGU4FlUV0Qm4HXT02sgE8WytKwhB7h9dfeq7dg1P-BLcjYJj6LIDzTsIdxkdqw?key=NE1XNUNPRFNFSnRieGxfUTBMVVFzUUZhNW55Z2p3)
 
-Last updated Tuesday January 27, 2026
+Last updated Thursday January 29, 2026
