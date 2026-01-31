@@ -1,7 +1,7 @@
 
 # Mexico Pictures 2026
 
-On January 7, 2026 we left Corvallis, Oregon and headed off on our winter adventure to Mexico.
+On Wednesday January 7, 2026 we left Corvallis, Oregon and headed off on our winter adventure to Mexico.
 Here are some photos that we decided to take along the way.
 
 ### Mexico City - January 8 - ???
