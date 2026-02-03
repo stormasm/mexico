@@ -15,6 +15,7 @@
 - [Set 07 - San Joaquín Subway Stop - January 27, 2026](https://photos.google.com/u/2/share/AF1QipM5nrftCac0CEu492rhZ0yC2pFMs62g9UeBEXINbD4QTtH_jV77GWHT8HujNEFgkg?key=VndXbVNuOHhsR05DSnoyWVY3cmhIWUpsS3lTaTd3)
 - [Set 08 - Museo Soumaya Part II - January 29, 2026](https://photos.google.com/u/2/share/AF1QipN_vGU4FlUV0Qm4HXT02sgE8WytKwhB7h9dfeq7dg1P-BLcjYJj6LIDzTsIdxkdqw?key=NE1XNUNPRFNFSnRieGxfUTBMVVFzUUZhNW55Z2p3)
 - [Set 09 - Churros y Parque México - January 30, 2026](https://photos.google.com/u/1/share/AF1QipNWg6U3vKhBKoroIQMNq6iJAKSbebd_UxEOQ1ie6gzMA82KR44Cev9iLAQaLSFGUA?key=RzNWeVhsWFF3MXg0ckpJQWJiOWZKVGhPWFRXWS13)
+- [Set 10 - Biblioteca Vasconcelos y Cocina La Torre - February 3, 2026](https://photos.google.com/u/1/share/AF1QipMni4IPdCQhOGJqyuDJZbW-mHEMVXtxhrsaRGVZDzTnlLVzh4F2CQS1a7rB-8jxKQ?key=ZU5FU2dwZ0VGbGUyRDNCNWUxRWc3SG1haW4wc0N3)
 
 
-Last updated Friday January 30, 2026
+Last updated Tuesday February 3, 2026
