@@ -17,5 +17,8 @@
 - [Set 09 - Churros y Parque México - January 30, 2026](https://photos.google.com/u/1/share/AF1QipNWg6U3vKhBKoroIQMNq6iJAKSbebd_UxEOQ1ie6gzMA82KR44Cev9iLAQaLSFGUA?key=RzNWeVhsWFF3MXg0ckpJQWJiOWZKVGhPWFRXWS13)
 - [Set 10 - Biblioteca Vasconcelos y Cocina La Torre - February 3, 2026](https://photos.google.com/u/1/share/AF1QipMni4IPdCQhOGJqyuDJZbW-mHEMVXtxhrsaRGVZDzTnlLVzh4F2CQS1a7rB-8jxKQ?key=ZU5FU2dwZ0VGbGUyRDNCNWUxRWc3SG1haW4wc0N3)
 
+### Notes on the Pictures
+
+- [Mexico City](./notes.md)
 
 Last updated Tuesday February 3, 2026
