@@ -103,8 +103,8 @@ The city covers a land area of about 1,485 to 1,495 square kilometers with a pop
 
 Key Density Details: 
 
-- Mexico City Proper: ~6,163-6,202 residents per \(\text{km}^{2}\).
-- Urban Area/Metropolitan (2025): The urban area, which includes surrounding suburbs, has a higher density of approximately 8,457 per \(\text{km}^{2}\).
+- Mexico City Proper: 6,200 residents per square km.
+- Urban Area/Metropolitan (2025): The urban area, which includes surrounding suburbs, has a higher density of approximately 8,450 per square km.
 - Density Trends: The city density has increased from 5,718 in 2005 to over 6,160 in 2020. 
 
 Metro Population: The Greater Mexico City metropolitan area (including surrounding municipalities) holds over 21-23 million people, making it one of the largest and most densely populated metropolitan areas in the Western Hemisphere. 
