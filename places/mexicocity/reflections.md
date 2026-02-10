@@ -97,6 +97,14 @@ what it means to live in a fairly small area with so many people. For people
 from the Willamette Valley reading this post Mexico City is about the size
 of Albany to Corvallis to Lebanon filled in with 20 million people.
 
+The most crazy thing about Mexico City is the cars and the motorcycles.
+I could never possibly imagine driving here let alone even attempt to ride
+a bicycle.  That is one very cool thing about Cdmx.  There are bike stands
+everywhere with lots of bikes available to rent.  You simply download the
+app and scan the bike spot and you have a bike for the day to ride anywhere
+you want to go.  When you are done you push your bike back in to the other place
+in the city where you arrived and you are done.  All for around $50 per year or less. 
+
 The population density of Mexico City proper (16 boroughs) is approximately 6,163 to 6,200 inhabitants per square kilometer (roughly 16,000 per square mile) as of 2020-2022 data.
 
 The city covers a land area of about 1,485 to 1,495 square kilometers with a population of over 9.2 million. 
