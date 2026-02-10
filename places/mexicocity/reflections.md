@@ -1,4 +1,5 @@
 
+## Reflections on Mexico City
 
 After living in Mexico City for 3 months I feel like I know the energy of
 the city well enough to reflect on my observations of what daily life is
