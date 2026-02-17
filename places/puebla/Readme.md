@@ -1,4 +1,13 @@
 
+### Santa Josefita Bed and Breakfast
+
+Av. 5 Pte. 123   
+Barrio de Sta Maria Xixitla   
+72760 Cholula Puebla   
+Mexico   
+222 168 1192
+
+- https://www.hotelsantajosefita.com/
 
 #### Google Searches google.mx
 
