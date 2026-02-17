@@ -26,4 +26,4 @@
 
 - [Mexico City](./notes.md)
 
-Last updated Saturday February 7, 2026
+Last updated Saturday February 14, 2026
