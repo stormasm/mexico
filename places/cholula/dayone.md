@@ -88,3 +88,8 @@ too badly affected by them.
 At the end of the day otherwise known as `atardecer` we got to the
 [largest known pyramid in the world today](https://yucatanmagazine.com/the-grand-city-of-cholula-and-its-sacred-pyramid-the-largest-in-the-word/) which is about a five minute walk from our bed
 and breakfast.
+
+Here is a great shot of
+[Popocatépetl](./CholulaVolcano.jpeg) and a 
+[note](https://en.wikipedia.org/wiki/Popocat%C3%A9petl)
+about it.
