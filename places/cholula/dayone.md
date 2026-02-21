@@ -20,7 +20,7 @@ Last year and this year :)
 Once you finally leave Mexico City you start climbing up a very
 big mountain which takes a very long time to summit.  As you start
 the climb Mexico City fades into the background and if you look
-behind you as you are climbing up you can the city in the distance
+behind you as you are climbing up you can see the city in the distance
 and the hazy air that is part of living in Cdmx.
 
 After cresting the mountain and starting down the other side the
@@ -38,7 +38,7 @@ switching back and forth as you navigate the streets of Cholula in
 the middle of the day.
 
 The place where we are staying is nice.  Its close to everything
-yet in about 30 minutes or so walking you can be on the edge and
+yet in about 20 minutes or so walking you can be on the edge and
 mostly out of town.
 
 This is very cool for us as we can see what the "country life" in
@@ -90,6 +90,6 @@ At the end of the day otherwise known as `atardecer` we got to the
 and breakfast.
 
 Here is a great shot of
-[Popocatépetl](./CholulaVolcano.jpeg) and a 
+[Popocatépetl](./CholulaVolcano.jpeg) and a
 [note](https://en.wikipedia.org/wiki/Popocat%C3%A9petl)
 about it.
