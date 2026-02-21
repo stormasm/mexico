@@ -56,7 +56,7 @@ are two classes of large cities.  There is Mexico City and
 then there is everyone else.
 
 And everywhere else is fairly similar once you hit a certain population
-size.  We got the edge of town, found a nice pasteleria and ate some
+size.  We got to the edge of town, found a nice pasteleria and ate some
 cookies and then kept going.
 
 For Michele and I life in Mexico is all about the food, the people,
@@ -74,7 +74,7 @@ have gone and the list is very clear in our hungry minds.
 
 There are some other mission critical things that are very helpful as
 we travel across Mexico and that is that our place is close to a store
-that sells 10 liters of water.  Unfortunately water in Mexico is not
+that sells 10 liters of water.  Unfortunately, water in Mexico is not
 potable and so you need to haul your water wherever you are.  Luckily
 the 10 liter bottles are just barely manageable especially for pouring
 the water into smaller water bottles :)
@@ -82,7 +82,7 @@ the water into smaller water bottles :)
 We also found a nice place to get our
 [arroz con leche](https://www.google.com/search?q=arroz+con+leche&sca_esv=4585a0b0b6a9671b&biw=1176&bih=638&udm=2&sxsrf=ANbL-n4V-ypEbs-XGf_vcOo_0bHood8rLQ%3A1771640587329&ei=CxeZaajpE9TBkPIPyOex6Ak&oq=arroz+&gs_lp=Egtnd3Mtd2l6LWltZyIGYXJyb3ogKgIIADIIEAAYgAQYsQMyCBAAGIAEGLEDMggQABiABBixAzIIEAAYgAQYsQMyCBAAGIAEGLEDMggQABiABBixAzIIEAAYgAQYsQMyCBAAGIAEGLEDMggQABiABBixAzIIEAAYgAQYsQNInSlQ7QFY1x1wAngAkAEBmAHNAaAB-xKqAQYwLjE1LjG4AQHIAQD4AQGYAgmgAtIIqAIKwgINEAAYgAQYsQMYQxiKBcICBhAAGAcYHsICBxAjGCcYyQLCAgUQABiABMICChAjGCcYyQIY6gLCAgoQABiABBhDGIoFwgIOEAAYgAQYsQMYgwEYigWYAwaIBgGSBwMyLjegB9hgsgcDMC43uAfCCMIHAzItOcgHMIAIAA&sclient=gws-wiz-img) which is one of my favorite dessert items as I am not
 lucky enough like Michele to be able to eat all of the good cookies
-here too. Although today I snuck a few good cookies and luckily was not
+here too. Although today, I snuck a few good cookies and luckily was not
 too badly affected by them.
 
 At the end of the day otherwise known as `atardecer` we got to the
