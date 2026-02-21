@@ -1,4 +1,6 @@
 
+### Cholula: Day One
+
 The bus ride from Mexico City to Puebla was interesting.
 
 A friend of mine told me that he did a ride from Cuernavaca
