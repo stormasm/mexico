@@ -25,6 +25,7 @@
 ### Cholula - February 20 - ???
 
 - [Set 16 - Día uno en Cholula - February 20, 2026](https://photos.google.com/u/2/share/AF1QipOCK58Hj-E-Twt3JjKUwcj4kXafABRFgxk-_cFw0G6yYEd7-s2UaCUHOPhsP-D6Ug?key=N3RDX0llNUQwNUx6SF85a2hTWWdiaktKTzdWNk1R)
+- [Set 17 - Sábado de Carnaval - February 21, 2026](https://photos.google.com/u/2/share/AF1QipP6350-4H823vRlp8xIWQCvmxFmKXc44r-kEa76wfTgmt8QBPSd6QkudqQqDptRWg?key=UnEteklhN2pNNFZuMlZrSE1xQjluR0dBY3hLb2Jn)
 
 ### Notes on the Pictures
 
