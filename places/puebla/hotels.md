@@ -9,7 +9,8 @@
 
 #### Notes
 
-Aristos March 12 - 14 is 1550 and March 15 - 18 is 1400 per night
+- These notes were derived on a visit from Saturday Feb 28
+- Aristos March 12 - 14 is 1550 and March 15 - 18 is 1400 per night
 
 ##### Places to Stay in Cholula
 
