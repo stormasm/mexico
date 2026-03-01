@@ -2,9 +2,9 @@
 #### Places to Stay in Puebla
 
 - [Casa Haus Hotel](https://www.casahaushotel.com/) is our favorite spot in Puebla and we checked it out on Saturday Feb 28, 2026.  The cost of the room is 1500 per night.
-- [Nh Hotel is Number 2](nh-hotels.com) the price for one week is 11140.
-- [Azcami Boutique Hotel is pretty good](azcamiboutiquehotel.com) is 11900 for one week or 1400 per night.
-- [Aristos is number 4 is fair](hotelesaristos.com)
+- [Nh Hotel is Number 2](https://www.nh-hotels.com/en) the price for one week is 11140.
+- [Azcami Boutique Hotel is pretty good](https://azcamiboutiquehotel.com/#/Inicio) is 11900 for one week or 1400 per night.
+- [Aristos is number 4 is fair](https://hotelesaristos.com/puebla)
 - Sofia Hotels is a NO
 
 #### Notes
