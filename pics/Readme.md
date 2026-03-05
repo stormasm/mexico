@@ -31,10 +31,12 @@
 - [Set 20 - Taste of Afrika - February 27, 2026](https://photos.google.com/u/2/share/AF1QipPNA9b_6ctwLCdw-zAH_QDYDN1YEpy2tgEqIzRPxBI43HbEouDs8BZOXa77qocgEQ?key=dV9VZ3UzV0VfVG5QbDRraFAxSjZQQzJpa1VqQlNR)
 - [Set 21 - Super Tortas y Flor de Puebla - February 28, 2026](https://photos.google.com/u/2/share/AF1QipMOi8b0iy42DA7dOPCb5vHrh0wd173WqJmYeYmxFVoPTKmUJQtL9eNp4IIKFTiyjA?key=VWtiOHRIT2d3d25xTFBJZ2lMUFFxYmw0X2JLVzBR)
 - [Set 22 - San Rafael Comac - March 2, 2026](https://photos.google.com/u/2/share/AF1QipOgmVnZbLqqWK-Sbm606Y7X4A01PfUUZPqUOlZtJP3K3LZ63mWggzZmyBJs_BeLeg?key=bElMbEtjY0dic0hvYTgtZW56aXlxbThCcVM3ZUt3)
+- [Set 23 - Camisa nueva hb - March 4, 2026](https://photos.google.com/u/2/share/AF1QipNB9VTrEFDIsOBXUI76Tj9AlcwAkoZ28Y2TnC9bQ87gyqoTs8D4ohQjIX4D_nxWXg?key=c082VU1RMlFkOE1TTlVlV25QMEp5Znlqb3VBMUZB)
+
 
 ### Notes on the Pictures
 
 - [Mexico City](./notes.md)
 - [Cholula](https://github.com/stormasm/mexico/blob/main/places/cholula/dayone.md)
 
-Last updated March 2, 2026
+Last updated March 4, 2026
