@@ -32,6 +32,7 @@
 - [Set 21 - Super Tortas y Flor de Puebla - February 28, 2026](https://photos.google.com/u/2/share/AF1QipMOi8b0iy42DA7dOPCb5vHrh0wd173WqJmYeYmxFVoPTKmUJQtL9eNp4IIKFTiyjA?key=VWtiOHRIT2d3d25xTFBJZ2lMUFFxYmw0X2JLVzBR)
 - [Set 22 - San Rafael Comac - March 2, 2026](https://photos.google.com/u/2/share/AF1QipOgmVnZbLqqWK-Sbm606Y7X4A01PfUUZPqUOlZtJP3K3LZ63mWggzZmyBJs_BeLeg?key=bElMbEtjY0dic0hvYTgtZW56aXlxbThCcVM3ZUt3)
 - [Set 23 - Camisa nueva hb - March 4, 2026](https://photos.google.com/u/2/share/AF1QipNB9VTrEFDIsOBXUI76Tj9AlcwAkoZ28Y2TnC9bQ87gyqoTs8D4ohQjIX4D_nxWXg?key=c082VU1RMlFkOE1TTlVlV25QMEp5Znlqb3VBMUZB)
+- [Set 24 - Pozoleria Matamoros - March 6, 2026](https://photos.google.com/u/2/share/AF1QipOtcs_8khfAltIpFQ__wC6eJPW0YHLy-yFyNzujcAy8ni1S27MVAorEoVYgQsmOZw?key=Nnd4MWJkXzVfTHBzUWIySmVjMVc5ek1UT2d1Y3Nn)
 
 
 ### Notes on the Pictures
@@ -39,4 +40,4 @@
 - [Mexico City](./notes.md)
 - [Cholula](https://github.com/stormasm/mexico/blob/main/places/cholula/dayone.md)
 
-Last updated March 4, 2026
+Last updated March 6, 2026
