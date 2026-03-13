@@ -34,6 +34,7 @@
 - [Set 23 - Camisa nueva hb - March 4, 2026](https://photos.google.com/u/2/share/AF1QipNB9VTrEFDIsOBXUI76Tj9AlcwAkoZ28Y2TnC9bQ87gyqoTs8D4ohQjIX4D_nxWXg?key=c082VU1RMlFkOE1TTlVlV25QMEp5Znlqb3VBMUZB)
 - [Set 24 - Pozoleria Matamoros - March 6, 2026](https://photos.google.com/u/2/share/AF1QipOtcs_8khfAltIpFQ__wC6eJPW0YHLy-yFyNzujcAy8ni1S27MVAorEoVYgQsmOZw?key=Nnd4MWJkXzVfTHBzUWIySmVjMVc5ek1UT2d1Y3Nn)
 - [Set 25 - El Viejón - March 7, 2026](https://photos.google.com/u/2/share/AF1QipNFdxJ9q54EM_aYyc-ZEtbtYxd5bBFWnjzbgAibcMZRxb7J1guJ6et55QB3ZfdRkw?key=b3NrTDVXRzNKbE9jU01ZOXNMcjM4NnJwT2Vjd0lR)
+- [Set 26 - Casa en Cholula - March 10, 2026](https://photos.google.com/u/2/share/AF1QipOIagRvUxJWQyIA8MdAq4WPbYz_TftN3btIsYLvkrqJi_Q5y71EDtsxOpA9hZUBpA?key=dTdZZTllVHlCYmFGdEt4NUV2cUxLdFduT3AyQnF3)
 - [Set 27 - Cumpleaños de Michele - March 12, 2026](https://photos.google.com/u/2/share/AF1QipOJBnHVG83BAW0nsXIu0VPU3Th6H0-CbiOuAXFJ-WFLCRsNFquQcpn6DtMjCjbA3g?key=cnI1M1BvdFVZSmZ2VDVDZDZGQnhBVGVaT2VoTmZR)
 
 ### Notes on the Pictures
@@ -41,4 +42,4 @@
 - [Mexico City](./notes.md)
 - [Cholula](https://github.com/stormasm/mexico/blob/main/places/cholula/dayone.md)
 
-Last updated March 7, 2026
+Last updated March 12, 2026
