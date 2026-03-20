@@ -37,6 +37,7 @@
 - [Set 26 - Casa en Cholula - March 10, 2026](https://photos.google.com/u/2/share/AF1QipOIagRvUxJWQyIA8MdAq4WPbYz_TftN3btIsYLvkrqJi_Q5y71EDtsxOpA9hZUBpA?key=dTdZZTllVHlCYmFGdEt4NUV2cUxLdFduT3AyQnF3)
 - [Set 27 - Cumpleaños de Michele - March 12, 2026](https://photos.google.com/u/2/share/AF1QipOJBnHVG83BAW0nsXIu0VPU3Th6H0-CbiOuAXFJ-WFLCRsNFquQcpn6DtMjCjbA3g?key=cnI1M1BvdFVZSmZ2VDVDZDZGQnhBVGVaT2VoTmZR)
 - [Set 28 - Chipilo a Tonantzintla - March 19, 2026](https://photos.google.com/u/2/share/AF1QipOL9KT-1j_I9L9mFU9prmvgscPOu_UccAB5CfRk9J3kcaIp5pY46TUgPJ0cA1Zwiw?key=OW55Mm9CODJCS043cnkzbTUyWWxWX2lpWVF1anN3)
+- [Set 29 - Viernes en Tonantzintla - March 20, 2026](https://photos.google.com/u/2/share/AF1QipMeK4jpTkCO3-gcQRrH7VDBkoDBStNeKxtRkTCyh16RMYzhHh6GcL_GxX47zIfZOw?key=NkN5cVJTSmtGUUtjc3ZhQ0hkTkZfOTF1bS1feWx3)
 
 ### Notes on the Pictures
 
