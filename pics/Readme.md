@@ -36,6 +36,7 @@
 - [Set 25 - El Viejón - March 7, 2026](https://photos.google.com/u/2/share/AF1QipNFdxJ9q54EM_aYyc-ZEtbtYxd5bBFWnjzbgAibcMZRxb7J1guJ6et55QB3ZfdRkw?key=b3NrTDVXRzNKbE9jU01ZOXNMcjM4NnJwT2Vjd0lR)
 - [Set 26 - Casa en Cholula - March 10, 2026](https://photos.google.com/u/2/share/AF1QipOIagRvUxJWQyIA8MdAq4WPbYz_TftN3btIsYLvkrqJi_Q5y71EDtsxOpA9hZUBpA?key=dTdZZTllVHlCYmFGdEt4NUV2cUxLdFduT3AyQnF3)
 - [Set 27 - Cumpleaños de Michele - March 12, 2026](https://photos.google.com/u/2/share/AF1QipOJBnHVG83BAW0nsXIu0VPU3Th6H0-CbiOuAXFJ-WFLCRsNFquQcpn6DtMjCjbA3g?key=cnI1M1BvdFVZSmZ2VDVDZDZGQnhBVGVaT2VoTmZR)
+- [Set 28 - Chipilo a Tonantzintla - March 19, 2026](https://photos.google.com/u/2/share/AF1QipOL9KT-1j_I9L9mFU9prmvgscPOu_UccAB5CfRk9J3kcaIp5pY46TUgPJ0cA1Zwiw?key=OW55Mm9CODJCS043cnkzbTUyWWxWX2lpWVF1anN3)
 
 ### Notes on the Pictures
 
