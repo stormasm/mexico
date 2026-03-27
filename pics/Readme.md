@@ -39,7 +39,7 @@
 - [Set 28 - Chipilo a Tonantzintla - March 19, 2026](https://photos.google.com/u/2/share/AF1QipOL9KT-1j_I9L9mFU9prmvgscPOu_UccAB5CfRk9J3kcaIp5pY46TUgPJ0cA1Zwiw?key=OW55Mm9CODJCS043cnkzbTUyWWxWX2lpWVF1anN3)
 - [Set 29 - Viernes en Tonantzintla - March 20, 2026](https://photos.google.com/u/2/share/AF1QipMeK4jpTkCO3-gcQRrH7VDBkoDBStNeKxtRkTCyh16RMYzhHh6GcL_GxX47zIfZOw?key=NkN5cVJTSmtGUUtjc3ZhQ0hkTkZfOTF1bS1feWx3)
 - [Set 30 - De camino a San Luis Tehuiloyocan - March 24, 2026](https://photos.google.com/u/2/share/AF1QipMCULFS1xBVPn0QjRoNAeQ_iK3zDf_zBMFn7PR0hOwiggrmjtfzAZV-_6QuBLrWRQ?key=OXJNS1BldUZVU2RjSjV4X1hPRlJHbzN1YWpFUXRn)
-- [Set 31 - La cocina del Nonno - March 26, 2026](https://photos.google.com/u/2/share/AF1QipOIEpdhGJY8RZ2BlMok5Gek-CvY176G5pO8dvsEcWZLKpJlfka4o4L5WdVe3VoEhg?key=TW5jaXRGY1BDdDQ5d2M4NEFDWjYzMmxobzNPYmVn)
+- [Set 31 - La cucina del Nonno - March 26, 2026](https://photos.google.com/u/2/share/AF1QipOIEpdhGJY8RZ2BlMok5Gek-CvY176G5pO8dvsEcWZLKpJlfka4o4L5WdVe3VoEhg?key=TW5jaXRGY1BDdDQ5d2M4NEFDWjYzMmxobzNPYmVn)
 
 ### Notes on the Pictures
 
