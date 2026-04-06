@@ -51,4 +51,4 @@
 - [Mexico City](./notes.md)
 - [Cholula](https://github.com/stormasm/mexico/blob/main/places/cholula/dayone.md)
 
-Last updated March 27, 2026
+Last updated April 05, 2026
