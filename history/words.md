@@ -1,6 +1,11 @@
 
 ## Words
 
+
+### atravesados
+
+- [thoroughly permeated](https://www.spanishdict.com/translate/atravesados)
+
 ### contundente
 
 - [blunt, forceful](https://www.spanishdict.com/translate/contundente)
@@ -15,6 +20,11 @@ Contundente is a frequently used, high-utility adjective in Spanish to describe 
 
 It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
+### polémicos
+
+a speech or piece of writing expressing a strongly critical attack on or controversial opinion about someone or something.
+
+- [controversial](https://www.spanishdict.com/translate/polemicos)
 
 ### viraje
 
