@@ -1,6 +1,12 @@
 
 ## Words
 
+### aportar
+
+- [contribute, provide](https://www.spanishdict.com/translate/aportar)
+- lo que nos aporta una idea del tejido que se establece entre líneas a lo largo de la investigación
+- which gives us an idea of ​​the fabric woven between the lines throughout the investigation.
+
 ### atravesados
 
 - Pocos temas tan polémicos y atravesados por la ideología como la revolución cubana
@@ -42,6 +48,11 @@ A plenary session is a meeting at a conference, assembly, or congress that is at
 a speech or piece of writing expressing a strongly critical attack on or controversial opinion about someone or something.
 
 - [controversial](https://www.spanishdict.com/translate/polemicos)
+
+### retomar
+
+- [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
+- Así, a lo largo de la obra se retoma - Thus, throughout the work, it is revisited.
 
 ### subrayar
 
