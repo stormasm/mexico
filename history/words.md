@@ -14,13 +14,17 @@
 
 Contundente is a frequently used, high-utility adjective in Spanish to describe arguments, victories, or evidence that are overwhelming, convincing, or conclusive. It is common in journalistic, political, and daily contexts, often translated as "forceful," "hard-hitting," or "resounding".
 
-#### Key Usage and Popularity Details:
+#### Key Usage of contundente:
 
 - Context: It is used both literally (a "blunt" object, arma contundente) and figuratively (a "strong/convincing" argument).
 - Synonyms: It is closely associated with words like concluyente (conclusive) and categórico (categorical).
 - Commonality: It is frequently featured in vocabulary-building resources and news media to describe conclusive results or decisive actions, as noted in the Collins Dictionary and Bab.la.
 
 It is highly popular for adding emphasis, similar to "hard-hitting" in English.
+
+### disponer
+
+- [to have, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
 
 ### plenary
 
