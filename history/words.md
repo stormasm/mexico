@@ -34,6 +34,8 @@ It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
 adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
 
+A plenary session is a meeting at a conference, assembly, or congress that is attended by all members, rather than smaller breakout groups or committees. It is a "full" or "complete" gathering (from Latin plenus), often used for opening keynotes, major announcements, or final voting, ensuring every participant can attend.
+
 ### polémicos
 
 a speech or piece of writing expressing a strongly critical attack on or controversial opinion about someone or something.
