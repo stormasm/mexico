@@ -22,6 +22,10 @@ Contundente is a frequently used, high-utility adjective in Spanish to describe 
 
 It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
+### plenary
+
+adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
+
 ### polémicos
 
 a speech or piece of writing expressing a strongly critical attack on or controversial opinion about someone or something.
