@@ -1,10 +1,12 @@
 
 ## Words
 
-
 ### atravesados
 
+- Pocos temas tan polémicos y atravesados
+- Few topics are as controversial and fraught.
 - [thoroughly permeated](https://www.spanishdict.com/translate/atravesados)
+- [atravesar](https://www.spanishdict.com/translate/atravesar)
 
 ### contundente
 
