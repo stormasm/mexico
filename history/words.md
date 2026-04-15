@@ -43,6 +43,10 @@ a speech or piece of writing expressing a strongly critical attack on or controv
 
 - [controversial](https://www.spanishdict.com/translate/polemicos)
 
+### subrayar
+
+- [emphasize, highlight, stress, underscore, summarize](https://www.spanishdict.com/translate/subrayar)
+
 ### viraje
 
 - [turn](https://www.spanishdict.com/translate/viraje)
