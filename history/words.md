@@ -24,7 +24,7 @@ It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
 ### disponer
 
-- [to have, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
+- [to have at one's disposal, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
 
 ### plenary
 
