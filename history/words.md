@@ -1,0 +1,40 @@
+
+## Words
+
+### contundente
+
+- [blunt, forceful](https://www.spanishdict.com/translate/contundente)
+
+Contundente is a frequently used, high-utility adjective in Spanish to describe arguments, victories, or evidence that are overwhelming, convincing, or conclusive. It is common in journalistic, political, and daily contexts, often translated as "forceful," "hard-hitting," or "resounding".
+
+#### Key Usage and Popularity Details:
+
+- Context: It is used both literally (a "blunt" object, arma contundente) and figuratively (a "strong/convincing" argument).
+- Synonyms: It is closely associated with words like concluyente (conclusive) and categórico (categorical).
+- Commonality: It is frequently featured in vocabulary-building resources and news media to describe conclusive results or decisive actions, as noted in the Collins Dictionary and Bab.la.
+
+It is highly popular for adding emphasis, similar to "hard-hitting" in English.
+
+
+### viraje
+
+- [turn](https://www.spanishdict.com/translate/viraje)
+
+The Spanish term viraje (masculine noun) primarily refers to a turn, curve, or swerve made by a vehicle or aircraft, such as a viraje en horquilla (hairpin bend).  Figuratively, it denotes a change of direction, shift, or abrupt switch in ideas, conduct, or policy, often described as a volte-face or turning point.
+
+#### Key contexts include:
+
+- Physical movement: A bend in a road or a maneuver by a car, plane, or boat (e.g., dar un viraje to turn).
+- Abstract shifts: A decisive change in political, economic, or historical trajectories (e.g., un brusco viraje histórico for a sharp historical turn).
+- Technical usage: In nautical terms, it can mean a tack; in photography, it refers to toning.
+
+#### How Popular is viraje ?
+
+Viraje is a moderately common Spanish noun, frequently used in news and formal contexts to describe a "change of direction," "swerve," "turn," or "shift" in political, social, or physical scenarios. It is not a daily colloquial word but is standard in journalism and descriptive writing, often referring to a pivot, such as a viraje a la derecha (shift to the right).
+
+Key details regarding the popularity and usage of viraje:
+
+- Contextual Usage: Highly popular in political commentary to describe a sudden change in ideology or policy.
+- Physical Meaning: Used in driving and aviation for a sharp turn or swerve (viraje brusco).
+- Synonyms: It is commonly interchangeable with words like giro (turn), cambio (change), or desviación (deviation).
+- Frequency: According to [glosbe](https://glosbe.com/es/en/viraje), viraje appears frequently in translated technical and journalistic contexts.
