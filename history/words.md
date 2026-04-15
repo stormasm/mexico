@@ -3,8 +3,9 @@
 
 ### atravesados
 
-- Pocos temas tan polémicos y atravesados
+- Pocos temas tan polémicos y atravesados por la ideología como la revolución cubana
 - Few topics are as controversial and fraught.
+- There are few topics as controversial and crossed by ideology as the Cuban revolution.
 - [thoroughly permeated](https://www.spanishdict.com/translate/atravesados)
 - [atravesar](https://www.spanishdict.com/translate/atravesar)
 
