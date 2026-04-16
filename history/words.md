@@ -44,6 +44,19 @@ It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
 - [to have at one's disposal, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
 
+Yes, disponer is a very common, high-frequency verb in Spanish, frequently ranked within the top 400 verbs in usage. It is particularly common in formal, legal, and professional contexts to mean "to have at one's disposal," "to arrange," or "to dispose," and it is often used with the preposition de (disponer de).
+
+- Common Contexts: It means to have something available (disponer de tiempo - to have time) or to arrange/order things.
+- Irregular Conjugation: It is conjugated like poner (to put), resulting in forms like dispongo (I have available), dispuse (I arranged), and dispuesto (arranged/disposed).
+- Related Words: The adjective disponible (available) is exceptionally common in everyday Spanish.
+
+#### Examples:
+
+- ¿ Dispones de tiempo ? (Do you have time available ?).
+- No disponemos de ese producto. (We do not have that product available.)
+
+While tener is used for everyday "having," disponer is the preferred term for formal, official, or high-level contexts.
+
 ### plenary
 
 adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
@@ -60,6 +73,12 @@ a speech or piece of writing expressing a strongly critical attack on or controv
 
 - [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
 - Así, a lo largo de la obra se retoma - Thus, throughout the work, it is revisited.
+
+Yes, retomar is a very popular and widely used verb in Spanish, meaning "to resume," "to take up again," or "to pick back up". It is frequently used in both professional and daily contexts to describe restarting a task, conversation, or project, such as retomar el control (regain control) or retomar un proyecto (restart a project).
+
+- Usage: It is common in both spoken and written Spanish to indicate continuing something that was interrupted.
+- Synonyms: It is often used interchangeably with reanudar (resume) or continuar (continue).
+- Context: Used frequently in work environments ("retomar el diálogo") and daily life ("retomar mis estudios").
 
 ### subrayar
 
