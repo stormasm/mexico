@@ -7,6 +7,13 @@
 - lo que nos aporta una idea del tejido que se establece entre líneas a lo largo de la investigación
 - which gives us an idea of ​​the fabric woven between the lines throughout the investigation.
 
+Yes, aportar is a very popular and widely used verb in Spanish, meaning "to contribute," "to provide," or "to bring in" (ideas, money, or resources). It is frequently used in both professional and everyday contexts, such as aportar ideas (to contribute ideas) or aportar valor (to add value).
+
+- Usage: It means to give or supply something necessary.
+- Common Phrases: Aportar soluciones (to provide solutions), aportar valor (to add value), aportar pruebas (to provide evidence).
+- Related Noun: El aporte or la aportación (the contribution/input).
+- Synonyms: It is closely related to contribuir, but aportar often emphasizes contributing specific items, efforts, or input
+
 ### atravesados
 
 - Pocos temas tan polémicos y atravesados por la ideología como la revolución cubana
