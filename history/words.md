@@ -57,6 +57,17 @@ Yes, disponer is a very common, high-frequency verb in Spanish, frequently ranke
 
 While tener is used for everyday "having," disponer is the preferred term for formal, official, or high-level contexts.
 
+### disponible
+
+In Spanish, disponible translates primarily to available, meaning something or someone is free to be used, ready for service, or not occupied.  It is an adjective used to describe items that are in stock, people who are free or on call, or resources that are accessible.
+
+- Free/Ready: Used for people (e.g., "Estoy disponible" meaning "I am available") or time slots.
+- In Stock: Referring to products or items that can be purchased (e.g., "El artículo no está disponible" meaning "The item is not available").
+- Vacant: Describing rooms, seats, or spaces that are unoccupied.
+- Disposable: In specific contexts, it can mean "disposable" (e.g., "disposable income"), though this is less common than "available."
+
+While disponible is the direct equivalent of "available," it differs from libre (free/liberty), which is often used for freedom from constraints or informal availability, whereas disponible is more formal and typically used in business or scheduling contexts. 
+
 ### plenary
 
 adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
