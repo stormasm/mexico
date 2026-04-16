@@ -94,6 +94,12 @@ a speech or piece of writing expressing a strongly critical attack on or controv
 
 - [controversial](https://www.spanishdict.com/translate/polemicos)
 
+### reino
+
+- [realm](https://www.spanishdict.com/translate/reino?langFrom=es&showOnlyResult=true)
+- resulta muy enriquecedora para una historia cultural interesada no sólo en la perspectiva económica y social, sino también en el reino de la percepción y las apariencias
+- It proves highly enriching for a cultural history interested not only in the economic and social perspective, but also in the realm of perception and appearances.
+
 ### retomar
 
 - [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
