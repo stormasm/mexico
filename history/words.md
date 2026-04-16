@@ -14,6 +14,13 @@ Yes, aportar is a very popular and widely used verb in Spanish, meaning "to cont
 - Related Noun: El aporte or la aportación (the contribution/input).
 - Synonyms: It is closely related to contribuir, but aportar often emphasizes contributing specific items, efforts, or input
 
+#### Latin note on aportar
+
+Yes, the Spanish word aportar is a direct derivative from the Latin verb apportāre.  This Latin term was formed by combining the prefix ad- (meaning "toward") with the verb portāre (meaning "to carry"), creating the original sense of "to bring" or "to carry toward."
+
+- Etymological Evolution: The core meaning evolved from the physical act of bringing something to the modern usage of contributing, providing, or supplying resources, ideas, or efforts. 
+- Related Terms: This Latin root portāre also gives rise to other common words like aporte (contribution), aportante (contributor), and puerto (port), all sharing the fundamental concept of carrying or bringing something
+
 ### atravesados
 
 - Pocos temas tan polémicos y atravesados por la ideología como la revolución cubana
@@ -66,7 +73,7 @@ In Spanish, disponible translates primarily to available, meaning something or s
 - Vacant: Describing rooms, seats, or spaces that are unoccupied.
 - Disposable: In specific contexts, it can mean "disposable" (e.g., "disposable income"), though this is less common than "available."
 
-While disponible is the direct equivalent of "available," it differs from libre (free/liberty), which is often used for freedom from constraints or informal availability, whereas disponible is more formal and typically used in business or scheduling contexts. 
+While disponible is the direct equivalent of "available," it differs from libre (free/liberty), which is often used for freedom from constraints or informal availability, whereas disponible is more formal and typically used in business or scheduling contexts.
 
 ### plenary
 
