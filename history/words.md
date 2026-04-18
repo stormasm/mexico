@@ -115,6 +115,20 @@ Yes, retomar is a very popular and widely used verb in Spanish, meaning "to resu
 
 - [emphasize, highlight, stress, underscore, summarize](https://www.spanishdict.com/translate/subrayar)
 
+### trazos históricos
+
+- historical framework
+- [stroke](https://www.spanishdict.com/translate/trazos)
+
+Trazos históricos" generally translates to "historical sketches," "outlines," or "strokes" rather than a formal, academic "framework" (marco histórico). It implies a brief, artistic, or summarized overview of events, rather than a structured analytical foundation used to analyze a topic.
+
+#### Contextual Breakdown:
+- Trazos: Means strokes (as in drawing), outlines, or traces.
+- Historicos: Historical.
+- Alternative Phrases: If you mean "historical framework" (a set of rules or context), use marco histórico or marco conceptual.
+
+Trazos históricos is best used for a quick overview or a painting of a scene, whereas marco histórico is used for a rigorous, foundational analysis
+
 ### viraje
 
 - [turn](https://www.spanishdict.com/translate/viraje)
