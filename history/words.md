@@ -92,6 +92,10 @@ In Spanish, disponible translates primarily to available, meaning something or s
 
 While disponible is the direct equivalent of "available," it differs from libre (free/liberty), which is often used for freedom from constraints or informal availability, whereas disponible is more formal and typically used in business or scheduling contexts.
 
+### juicio
+
+- [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
+
 ### plenary
 
 adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
