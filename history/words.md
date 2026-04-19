@@ -8,7 +8,8 @@
 ### abarcar
 
 - [to cover, extend over](https://www.spanishdict.com/translate/abarcando)
-- El libro abarca el periodo entre 1939 y 1945 - The book covers the period between 1939 and 1945 
+- El libro abarca el periodo entre 1939 y 1945 - The book covers the period between 1939 and 1945
+- abarcando entre 1,000 y 5,000 personas, involving or covering between 1,000 and 5,000 people
 
 ### aportar
 
