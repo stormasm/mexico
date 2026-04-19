@@ -54,6 +54,10 @@ It is highly popular for adding emphasis, similar to "hard-hitting" in English.
 
 - [disappearance, vanishing, death, closing, extinction](https://www.spanishdict.com/translate/desaparici%C3%B3n)
 
+### desplegar
+
+- [to show, diplayed](https://www.spanishdict.com/translate/desplegados)
+
 ### disponer
 
 - [to have at one's disposal, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
