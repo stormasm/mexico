@@ -119,6 +119,10 @@ a speech or piece of writing expressing a strongly critical attack on or controv
 
 - [controversial](https://www.spanishdict.com/translate/polemicos)
 
+### prueba
+
+- [evidence, proof](https://www.spanishdict.com/translate/prueba?langFrom=es&showOnlyResult=true)
+
 ### reino
 
 - [realm](https://www.spanishdict.com/translate/reino?langFrom=es&showOnlyResult=true)
