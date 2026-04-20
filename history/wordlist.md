@@ -1,50 +1,50 @@
 
-- [Word of the Day](https://www.spanishdict.com/worlist)
+- [Word of the Day](https://www.spanishdict.com/wordlist)
 
 ---
 
-- [A](./worlist.md#a)
-[B](./worlist.md#b)
-[C](./worlist.md#c)
+- [A](./wordlist.md#a)
+[B](./wordlist.md#b)
+[C](./wordlist.md#c)
 &nbsp;
 &nbsp;
-[D](./worlist.md#d)
-[E](./worlist.md#e)
-[F](./worlist.md#f)
+[D](./wordlist.md#d)
+[E](./wordlist.md#e)
+[F](./wordlist.md#f)
 &nbsp;
 &nbsp;
-[G](./worlist.md#g)
-[H](./worlist.md#h)
-[I](./worlist.md#i)
+[G](./wordlist.md#g)
+[H](./wordlist.md#h)
+[I](./wordlist.md#i)
 &nbsp;
 &nbsp;
-[J](./worlist.md#j)
-[K](./worlist.md#k)
-[L](./worlist.md#l)
+[J](./wordlist.md#j)
+[K](./wordlist.md#k)
+[L](./wordlist.md#l)
 &nbsp;
 &nbsp;
-[M](./worlist.md#m)
-[N](./worlist.md#n)
-[O](./worlist.md#o)
+[M](./wordlist.md#m)
+[N](./wordlist.md#n)
+[O](./wordlist.md#o)
 &nbsp;
 &nbsp;
-[P](./worlist.md#p)
-[Q](./worlist.md#q)
-[R](./worlist.md#r)
+[P](./wordlist.md#p)
+[Q](./wordlist.md#q)
+[R](./wordlist.md#r)
 &nbsp;
 &nbsp;
-[S](./worlist.md#s)
-[T](./worlist.md#t)
-[U](./worlist.md#u)
+[S](./wordlist.md#s)
+[T](./wordlist.md#t)
+[U](./wordlist.md#u)
 &nbsp;
 &nbsp;
-[V](./worlist.md#v)
-[W](./worlist.md#w)
+[V](./wordlist.md#v)
+[W](./wordlist.md#w)
 &nbsp;
 &nbsp;
-[X](./worlist.md#x)
-[Y](./worlist.md#y)
-[Z](./worlist.md#z)
+[X](./wordlist.md#x)
+[Y](./wordlist.md#y)
+[Z](./wordlist.md#z)
 
 ---
 
@@ -393,45 +393,45 @@
 ---
 
 
-- [A](./worlist.md#a)
-[B](./worlist.md#b)
-[C](./worlist.md#c)
+- [A](./wordlist.md#a)
+[B](./wordlist.md#b)
+[C](./wordlist.md#c)
 &nbsp;
 &nbsp;
-[D](./worlist.md#d)
-[E](./worlist.md#e)
-[F](./worlist.md#f)
+[D](./wordlist.md#d)
+[E](./wordlist.md#e)
+[F](./wordlist.md#f)
 &nbsp;
 &nbsp;
-[G](./worlist.md#g)
-[H](./worlist.md#h)
-[I](./worlist.md#i)
+[G](./wordlist.md#g)
+[H](./wordlist.md#h)
+[I](./wordlist.md#i)
 &nbsp;
 &nbsp;
-[J](./worlist.md#j)
-[K](./worlist.md#k)
-[L](./worlist.md#l)
+[J](./wordlist.md#j)
+[K](./wordlist.md#k)
+[L](./wordlist.md#l)
 &nbsp;
 &nbsp;
-[M](./worlist.md#m)
-[N](./worlist.md#n)
-[O](./worlist.md#o)
+[M](./wordlist.md#m)
+[N](./wordlist.md#n)
+[O](./wordlist.md#o)
 &nbsp;
 &nbsp;
-[P](./worlist.md#p)
-[Q](./worlist.md#q)
-[R](./worlist.md#r)
+[P](./wordlist.md#p)
+[Q](./wordlist.md#q)
+[R](./wordlist.md#r)
 &nbsp;
 &nbsp;
-[S](./worlist.md#s)
-[T](./worlist.md#t)
-[U](./worlist.md#u)
+[S](./wordlist.md#s)
+[T](./wordlist.md#t)
+[U](./wordlist.md#u)
 &nbsp;
 &nbsp;
-[V](./worlist.md#v)
-[W](./worlist.md#w)
+[V](./wordlist.md#v)
+[W](./wordlist.md#w)
 &nbsp;
 &nbsp;
-[X](./worlist.md#x)
-[Y](./worlist.md#y)
-[Z](./worlist.md#z)
+[X](./wordlist.md#x)
+[Y](./wordlist.md#y)
+[Z](./wordlist.md#z)
