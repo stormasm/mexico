@@ -103,6 +103,29 @@ In Spanish, disponible translates primarily to available, meaning something or s
 
 While disponible is the direct equivalent of "available," it differs from libre (free/liberty), which is often used for freedom from constraints or informal availability, whereas disponible is more formal and typically used in business or scheduling contexts.
 
+### etapa
+
+- [phase, period, stage](https://www.spanishdict.com/translate/etapa)
+
+#### time
+
+a. period
+
+- Después de la guerra, entraron en una etapa de paz.
+- After the war, they entered a period of peace.
+
+b. stage
+
+- La etapa de preparación es fundamental para obtener buenos resultados.
+- The planning stage is crucial for getting good results.
+
+c. phase
+
+- He llegado a la etapa de mi vida donde quiero tener hijos.
+- I've reached the phase in my life where I want to have children.
+
+
+
 ### juicio
 
 - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
