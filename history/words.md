@@ -11,6 +11,17 @@
 - El libro abarca el periodo entre 1939 y 1945 - The book covers the period between 1939 and 1945
 - abarcando entre 1,000 y 5,000 personas, involving or covering between 1,000 and 5,000 people
 
+Abarcar is a commonly used Spanish verb meaning to cover, include, span, or encompass. While not in the top 10 most used verbs (like ser or tener), it is widely employed in academic, descriptive, and professional contexts to describe scope. It is frequently used in the proverb: "Quien mucho abarca, poco aprieta" (He who grasps too much holds little).
+
+- Meaning: Covers, includes, spans, takes in, or encompasses.
+- Common Contexts: Often used to describe the scope of a topic, project, or area (e.g., El proyecto abarca... - "The project covers...").
+- Proverb: It is essential in the common saying: Quien mucho abarca, poco aprieta.
+- Conjugation: It is a regular -AR verb, though it is part of the -car ending family.
+---
+- El libro abarca todo el periodo. (The book covers the whole period.)
+- Sus conocimientos abarcan todo el campo. (His knowledge spans the entire field.)
+- No puedes abarcar tanto trabajo. (You cannot take on so much work.)
+
 ### aportar
 
 - [contribute, provide](https://www.spanishdict.com/translate/aportar)
