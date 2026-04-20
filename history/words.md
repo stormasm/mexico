@@ -107,6 +107,10 @@ While disponible is the direct equivalent of "available," it differs from libre 
 
 - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
 
+### peritaje
+
+- [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)
+
 ### plenary
 
 adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
