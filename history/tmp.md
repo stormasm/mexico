@@ -5,7 +5,7 @@
 
 ### Wordlist
 
-- [abarcar]() [to cover, extend over](https://www.spanishdict.com/translate/abarcando)
+- [abarcar](./words.md#abarcar) [to cover, extend over](https://www.spanishdict.com/translate/abarcando)
 - [aportar]() [contribute, provide](https://www.spanishdict.com/translate/aportar)
 - [atravesar]() [to cross](https://www.spanishdict.com/translate/atravesar)
 - [contundente]() [blunt, forceful](https://www.spanishdict.com/translate/contundente)
