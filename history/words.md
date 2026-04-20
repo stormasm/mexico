@@ -105,9 +105,7 @@ While disponible is the direct equivalent of "available," it differs from libre 
 
 ### etapa
 
-- [phase, period, stage](https://www.spanishdict.com/translate/etapa)
-
-#### time
+- [time = phase, period, stage](https://www.spanishdict.com/translate/etapa)
 
 a. period
 
