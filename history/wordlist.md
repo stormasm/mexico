@@ -28,4 +28,4 @@
 - [retomar]() - [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
 - [subrayar]() - [emphasize, highlight, stress, underscore, summarize](https://www.spanishdict.com/translate/subrayar)
 - [trazos históricos]() - [stroke, historical framework](https://www.spanishdict.com/translate/trazos)
-- [viraje]() - [turn](https://www.spanishdict.com/translate/viraje)
+- [viraje]() - [shift, turn](https://www.spanishdict.com/translate/viraje)
