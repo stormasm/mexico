@@ -17,7 +17,7 @@
 - [etapa]() - [time = phase, period, stage](https://www.spanishdict.com/translate/etapa)
 - [juicio]() - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
 - [peritaje]() - [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)
-- [plenary]() - adjective · full; complete; entire; absolute; unqualified. plenary powers. · attended by all qualified members; fully constituted. a plenary session of Congress.
+- [plenary]() - full; complete; entire; absolute; fully constituted
 - [polémicos]() - [controversial](https://www.spanishdict.com/translate/polemicos)
 - [prueba]() - [evidence, proof](https://www.spanishdict.com/translate/prueba?langFrom=es&showOnlyResult=true)
 - [reino]() - [realm](https://www.spanishdict.com/translate/reino?langFrom=es&showOnlyResult=true)
