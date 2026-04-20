@@ -1,4 +1,5 @@
 
+- [wordlist](./wordlist.md)
 - [x2601](./x2601.md)
 - [x2601a](./x2601a.md)
 ---
