@@ -1,51 +1,51 @@
 
 - [tmp](./tmp.md)
-- [Word of the Day](https://www.spanishdict.com/wordlist)
+- [Word of the Day](https://www.spanishdict.com/wordict)
 
 ---
 
-- [A](./wordlist.md#a)
-[B](./wordlist.md#b)
-[C](./wordlist.md#c)
+- [A](./wordict.md#a)
+[B](./wordict.md#b)
+[C](./wordict.md#c)
 &nbsp;
 &nbsp;
-[D](./wordlist.md#d)
-[E](./wordlist.md#e)
-[F](./wordlist.md#f)
+[D](./wordict.md#d)
+[E](./wordict.md#e)
+[F](./wordict.md#f)
 &nbsp;
 &nbsp;
-[G](./wordlist.md#g)
-[H](./wordlist.md#h)
-[I](./wordlist.md#i)
+[G](./wordict.md#g)
+[H](./wordict.md#h)
+[I](./wordict.md#i)
 &nbsp;
 &nbsp;
-[J](./wordlist.md#j)
-[K](./wordlist.md#k)
-[L](./wordlist.md#l)
+[J](./wordict.md#j)
+[K](./wordict.md#k)
+[L](./wordict.md#l)
 &nbsp;
 &nbsp;
-[M](./wordlist.md#m)
-[N](./wordlist.md#n)
-[O](./wordlist.md#o)
+[M](./wordict.md#m)
+[N](./wordict.md#n)
+[O](./wordict.md#o)
 &nbsp;
 &nbsp;
-[P](./wordlist.md#p)
-[Q](./wordlist.md#q)
-[R](./wordlist.md#r)
+[P](./wordict.md#p)
+[Q](./wordict.md#q)
+[R](./wordict.md#r)
 &nbsp;
 &nbsp;
-[S](./wordlist.md#s)
-[T](./wordlist.md#t)
-[U](./wordlist.md#u)
+[S](./wordict.md#s)
+[T](./wordict.md#t)
+[U](./wordict.md#u)
 &nbsp;
 &nbsp;
-[V](./wordlist.md#v)
-[W](./wordlist.md#w)
+[V](./wordict.md#v)
+[W](./wordict.md#w)
 &nbsp;
 &nbsp;
-[X](./wordlist.md#x)
-[Y](./wordlist.md#y)
-[Z](./wordlist.md#z)
+[X](./wordict.md#x)
+[Y](./wordict.md#y)
+[Z](./wordict.md#z)
 
 ---
 
@@ -394,45 +394,45 @@
 ---
 
 
-- [A](./wordlist.md#a)
-[B](./wordlist.md#b)
-[C](./wordlist.md#c)
+- [A](./wordict.md#a)
+[B](./wordict.md#b)
+[C](./wordict.md#c)
 &nbsp;
 &nbsp;
-[D](./wordlist.md#d)
-[E](./wordlist.md#e)
-[F](./wordlist.md#f)
+[D](./wordict.md#d)
+[E](./wordict.md#e)
+[F](./wordict.md#f)
 &nbsp;
 &nbsp;
-[G](./wordlist.md#g)
-[H](./wordlist.md#h)
-[I](./wordlist.md#i)
+[G](./wordict.md#g)
+[H](./wordict.md#h)
+[I](./wordict.md#i)
 &nbsp;
 &nbsp;
-[J](./wordlist.md#j)
-[K](./wordlist.md#k)
-[L](./wordlist.md#l)
+[J](./wordict.md#j)
+[K](./wordict.md#k)
+[L](./wordict.md#l)
 &nbsp;
 &nbsp;
-[M](./wordlist.md#m)
-[N](./wordlist.md#n)
-[O](./wordlist.md#o)
+[M](./wordict.md#m)
+[N](./wordict.md#n)
+[O](./wordict.md#o)
 &nbsp;
 &nbsp;
-[P](./wordlist.md#p)
-[Q](./wordlist.md#q)
-[R](./wordlist.md#r)
+[P](./wordict.md#p)
+[Q](./wordict.md#q)
+[R](./wordict.md#r)
 &nbsp;
 &nbsp;
-[S](./wordlist.md#s)
-[T](./wordlist.md#t)
-[U](./wordlist.md#u)
+[S](./wordict.md#s)
+[T](./wordict.md#t)
+[U](./wordict.md#u)
 &nbsp;
 &nbsp;
-[V](./wordlist.md#v)
-[W](./wordlist.md#w)
+[V](./wordict.md#v)
+[W](./wordict.md#w)
 &nbsp;
 &nbsp;
-[X](./wordlist.md#x)
-[Y](./wordlist.md#y)
-[Z](./wordlist.md#z)
+[X](./wordict.md#x)
+[Y](./wordict.md#y)
+[Z](./wordict.md#z)
