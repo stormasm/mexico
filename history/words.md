@@ -133,6 +133,10 @@ a speech or piece of writing expressing a strongly critical attack on or controv
 - resulta muy enriquecedora para una historia cultural interesada no sólo en la perspectiva económica y social, sino también en el reino de la percepción y las apariencias
 - It proves highly enriching for a cultural history interested not only in the economic and social perspective, but also in the realm of perception and appearances.
 
+### restarle
+
+- [to make light of, downplay](https://www.spanishdict.com/translate/restarle)
+
 ### retomar
 
 - [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
