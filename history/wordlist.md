@@ -14,12 +14,12 @@
 ---
 - [desplegar](./words.md#desplegar) - [to show, diplayed](https://www.spanishdict.com/translate/desplegados)
 - [disponer](./words#disponer) - [to have at one's disposal, make use of](https://www.spanishdict.com/translate/disponer?langFrom=es)
-- [disponible]() - available
+- [disponible]() - [available](https://www.spanishdict.com/translate/disponible)
 - [etapa]() - [time = phase, period, stage](https://www.spanishdict.com/translate/etapa)
 - [juicio]() - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
 ---
 - [peritaje]() - [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)
-- [plenary]() - full; complete; entire; absolute; fully constituted
+- [plenary]() - [full; complete; entire; absolute; fully constituted](https://www.merriam-webster.com/dictionary/plenary)
 - [polémicos]() - [controversial](https://www.spanishdict.com/translate/polemicos)
 - [prueba]() - [evidence, proof](https://www.spanishdict.com/translate/prueba?langFrom=es&showOnlyResult=true)
 - [reino]() - [realm](https://www.spanishdict.com/translate/reino?langFrom=es&showOnlyResult=true)
