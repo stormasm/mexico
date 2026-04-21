@@ -7,9 +7,9 @@
 ### Wordlist
 
 - [abarcar](./words.md#abarcar) - [to cover, extend over](https://www.spanishdict.com/translate/abarcando)
-- [aportar](./words.md#aportar) [contribute, provide](https://www.spanishdict.com/translate/aportar)
-- [atravesar](./words.md#atravesar) [to cross](https://www.spanishdict.com/translate/atravesar)
-- [contundente](./words.md#contundente) [blunt, forceful](https://www.spanishdict.com/translate/contundente)
+- [aportar](./words.md#aportar) - [contribute, provide](https://www.spanishdict.com/translate/aportar)
+- [atravesar](./words.md#atravesar) - [to cross](https://www.spanishdict.com/translate/atravesar)
+- [contundente](./words.md#contundente) - [blunt, forceful](https://www.spanishdict.com/translate/contundente)
 - [desaparición](./words.md#desaparicion) - [disappearance, vanishing, death, closing, extinction](https://www.spanishdict.com/translate/desaparici%C3%B3n)
 ---
 - [desplegar](./words.md#desplegar) - [to show, diplayed](https://www.spanishdict.com/translate/desplegados)
