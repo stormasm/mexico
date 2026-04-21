@@ -20,12 +20,12 @@
 ---
 - [peritaje](./words.md#pertije) - [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)
 - [plenary](./words.md#plenary) - [full; complete; entire; absolute; fully constituted](https://www.merriam-webster.com/dictionary/plenary)
-- [polémicos](./words.md#polemicos) - [controversial](https://www.spanishdict.com/translate/polemicos)
+- [polémicos](words.md#polémicos) - [controversial](https://www.spanishdict.com/translate/polemicos)
 - [prueba](./words.md#prueba) - [evidence, proof](https://www.spanishdict.com/translate/prueba?langFrom=es&showOnlyResult=true)
 - [reino](./words.md#reino) - [realm](https://www.spanishdict.com/translate/reino?langFrom=es&showOnlyResult=true)
 ---
 - [restarle](./words.md#restarle) - [to make light of, downplay](https://www.spanishdict.com/translate/restarle)
 - [retomar](./words.md#retomar) - [resume](https://www.spanishdict.com/translate/retomar?langFrom=es)
 - [subrayar](./words.md#subrayar) - [emphasize, highlight, stress, underscore, summarize](https://www.spanishdict.com/translate/subrayar)
-- [trazos históricos](./words.md#trazos) - [stroke, historical framework](https://www.spanishdict.com/translate/trazos)
+- [trazos históricos](words.md#trazos-históricos) - [stroke, historical framework](https://www.spanishdict.com/translate/trazos)
 - [viraje](./words.md#viraje) - [shift, turn](https://www.spanishdict.com/translate/viraje)
