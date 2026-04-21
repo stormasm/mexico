@@ -130,6 +130,10 @@ c. phase
 
 - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
 
+### merecer
+
+- [deserve, to be worth, to merit](https://www.spanishdict.com/translate/merecer)
+
 ### peritaje
 
 - [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)

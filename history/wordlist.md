@@ -18,6 +18,10 @@
 - [etapa](./words.md#etapa) - [time = phase, period, stage](https://www.spanishdict.com/translate/etapa)
 - [juicio](./words.md#juicio) - [trial, court case](https://www.spanishdict.com/translate/juicio?langFrom=es)
 ---
+
+- [merecer](./words.md#merecer) - [deserve, to be worth, to merit](https://www.spanishdict.com/translate/merecer)
+
+---
 - [peritaje](./words.md#pertije) - [expert work, expert report, techical studies](https://www.spanishdict.com/translate/peritaje)
 - [plenary](./words.md#plenary) - [full; complete; entire; absolute; fully constituted](https://www.merriam-webster.com/dictionary/plenary)
 - [polémicos](words.md#polémicos) - [controversial](https://www.spanishdict.com/translate/polemicos)
